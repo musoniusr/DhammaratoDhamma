@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Awakening From the Victim Mindset - Sangha US 05-11-2024"
+title:  "Awakening From the Victim Mindset - Sangha US 05-10-2024"
 author: Dhammarato
 categories: [ transcripts ]
 tags: [transcripts, sangha-us]
