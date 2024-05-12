@@ -2,7 +2,7 @@
 layout: post
 title:  "Progress and Problems - The Sangha UK # 208"
 author: Dhammarato
-categories: [ transcripts, Sangha ]
+categories: [ transcripts, Sangha UK ]
 tags: [transcripts, sangha-us]
 image: "https://i.ytimg.com/vi/74HpXZUtEPo/maxresdefault.jpg"
 description: "Transcript of May 10, 2024 Sangha US Talk with Dhammarato and Friends"
