@@ -342,6 +342,10 @@ All right, you guys have had enough too. Great. Enough of this.
 
 Enough already. Thank you, Damarado. Thank you everyone.
 
+### Youtube Video
+
+<p><iframe style="width:100%;" height="315" src="https://www.youtube.com/embed/74HpXZUtEPo?rel=0&amp;showinfo=0" frameborder="0" allowfullscreen></iframe></p>
+
 ### AI Summary From Claude AI
 
 Prompt: #ai/prompts  Please summarize this transcript from Dhammarato. Please give me the key points and also direct quotes to illustrate each of those key points. At the end give me any insight that you may have on this talk from your own experience as an AI and what you've been trained on that could apply.
