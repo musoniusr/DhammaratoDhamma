@@ -19,9 +19,9 @@ comments: true
 <p>Private chats with Dhammarato are available at no charge. Questions about meditation are welcome.</p>
 
 
-### Sanghas
+<h4> Sanghas </h4>
 
-<p>The Sangha US, Friday 7 PM PDT<a href="https://join.skype.com/uyYzUwJ3e3TO">Skype Call</a>.</p>
+<p>The Sangha US, Friday 7 PM PDT <a href="https://join.skype.com/uyYzUwJ3e3TO">Skype Call</a>.</p>
 
 ►The Sangha US, Friday 7PM PDT - https://join.skype.com/uyYzUwJ3e3TO 
 ►The Sangha UK, Sunday 10AM BST - https://join.skype.com/w6nFHnra6vdh 
