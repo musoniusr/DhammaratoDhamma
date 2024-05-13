@@ -1,9 +1,9 @@
 ---
 layout: post
-title: Be The Boss of Your Own Desitiny - Daily Dhammarato
+title: "Be The Boss of Your Own Destiny - Daily Dhammarato"
 author: Dhammarato
 categories:
-  - Daily Dhamma
+  - Daily Dhammaarato
 image: assets/be-the-boss-2023-05-13.png
 featured: true
 hidden: true
