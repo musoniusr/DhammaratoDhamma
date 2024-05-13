@@ -47,4 +47,4 @@ We need to practice being satisfied and content because we've been trained to be
 
 <p><iframe style="width:100%;" height="315" src="https://www.youtube.com/embed/Y9jOSEBPpcE?rel=0&amp;showinfo=0" frameborder="0" allowfullscreen></iframe></p>
 
-Or you can read the entire transcript of the video .
+Or you can read the entire transcript of the video [here](https://dhammarato.com/See-the-Flower-and-Smile-US-Sangha-111/)
