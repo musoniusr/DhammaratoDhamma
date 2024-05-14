@@ -4,7 +4,7 @@ title: "Transforming Reality: The Power of the Mind - Daily Dhammarato"
 author: Dhammarato
 categories:
   - Daily Dhammaarato
-image: assets/images/be-the-boss.png
+image: assets/images/transforming-reality.png
 featured: true
 hidden: true
 toc: true
@@ -14,7 +14,7 @@ toc: true
 ## Transforming Reality: The Power of the Mind
 
 ### Introduction
-In the April 14, 2024 UK Sangha talk [[2024-04-14 You Don't Have to Fix The World  Sangha UK 210  04.14.24 SMALigFMRxM]] , valuable insights were shared on sati (remembering), the nature of reality, and the path to inner peace. These teachings, deeply rooted in the Buddha's wisdom, shed light on how our thoughts and perceptions shape our experiences and how we can transform our lives by cultivating a sati and compassionate approach to living.
+In the April 14, 2024 UK Sangha talk [You Don't Have To Fix The World](https://dhammarato.com/you-dont-have-to-fix-the-world-sangha-uk-210-04-14-24-SMALigFMRxM/), valuable insights were shared on sati (remembering), the nature of reality, and the path to inner peace. These teachings, deeply rooted in the Buddha's wisdom, shed light on how our thoughts and perceptions shape our experiences and how we can transform our lives by cultivating a sati and compassionate approach to living.
 
 ### The Mind: The Creator of Our Reality
 Our mind is the creator of our reality. Our thoughts, perceptions, and reactions shape our experience of life. When we hear or see something, we create an internal representation of it in our minds.
