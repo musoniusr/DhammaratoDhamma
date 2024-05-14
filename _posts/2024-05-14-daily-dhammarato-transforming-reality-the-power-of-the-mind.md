@@ -27,9 +27,9 @@ We create images based on the information we receive, and then we react emotiona
 
 Our thoughts and perceptions are influenced by our past experiences and conditioning, which are stored in our memory.
 
-> This, in fact, is what we call wisdom. Wisdom is being able to see what's happening in advance rather than what happened in the past.
-
 By understanding how our mind creates our reality, we can take responsibility for our thoughts and emotions, and work towards creating a more positive and peaceful experience of life.
+
+> This, in fact, is what we call wisdom. Wisdom is being able to see what's happening in advance rather than what happened in the past.
 
 ### Sati: The Skill of Remembering and Choosing
 Sati is a crucial aspect of Buddhist practice, and its importance in transforming our lives cannot be overstated.
