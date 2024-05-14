@@ -82,17 +82,19 @@ These teachings offer a powerful and transformative approach to living, grounded
 
 <p><iframe style="width:100%;" height="315" src="https://www.youtube.com/embed/SMALigFMRxM?rel=0&amp;showinfo=0" frameborder="0" allowfullscreen></iframe></p>
 
-Or you can read the entire transcript of the video [here](https://dhammarato.com/See-the-Flower-and-Smile-US-Sangha-111/
+Or you can read the entire transcript of the video [here](https://dhammarato.com/you-dont-have-to-fix-the-world-sangha-uk-210-04-14-24-SMALigFMRxM/)
 
 
 Private chats with Dhammarato are available at no charge. Questions about meditation are welcome.
 
 
-## Participate in one of our Live Sanghas
+## Participate in one of our Live Sanghas (Free of Charge)
 
 <p>►The Sangha US, Friday 7 PM PDT <a href="https://join.skype.com/uyYzUwJ3e3TO">Join Skype Call</a>.</p>
 
 <p>►The Sangha UK, Sunday 10AM BST <a href="https://join.skype.com/w6nFHnra6vdh">Join Skype Call</a>.</p>
 
 <p>►The Sangha UK, Wednesday 7PM BST <a href="https://join.skype.com/w6nFHnra6vdh">Join Skype Call</a>.</p>
+
+There is nothing like direct transmission of the teachings in a one-to-one or one-to-group (Sangha) format.   We encourage you to participate in our weekly Sanghas.
 
