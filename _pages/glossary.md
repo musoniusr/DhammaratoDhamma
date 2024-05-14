@@ -5,11 +5,7 @@ permalink: /glossary
 comments: true
 ---
 
-   <meta charset="UTF-8">
-    <meta name="viewport" content="width=device-width, initial-scale=1.0">
-    <title>Pali Glossary and Dhammarato Items</title>
-</head>
-<body>
+
     <h1>Pali Glossary</h1>
         <dl>
         <dt>Dhamma</dt>
@@ -54,10 +50,4 @@ comments: true
         <dd>The opposite of dukkha. Sukkha is satisfaction which means that whenever we're in sukkha we do not have dukkha. In that moment you have nibbāna.</dd>
     </dl>
 
-    <h2>Dhammarato Items</h2>
-    <ul>
-        <li>Gladdening of the Mind</li>
-    </ul>
-
-</body>
-</html>
+    
