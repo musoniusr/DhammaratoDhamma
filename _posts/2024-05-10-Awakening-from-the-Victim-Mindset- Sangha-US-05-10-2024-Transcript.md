@@ -725,14 +725,3 @@ Ivan, can you start to remember often?
 
   
   
-### AI Summary
-
-Please summarize this transcript from Dhammarato. Please give me the key points and also direct quotes to illustrate each of those key points. At the end give me any insight that you may have on this talk from your own experience as an AI and what you've been trained on that could apply. Also please give me subtitles for each main part of this talk and give me the first two sentences of the portion of the transcript that would be under that subtitle. Also, give me 10 possible titles for this Dhamma talk. And give me three variations of a short summary I can post in social media to get people to come read this transcript on a website
-
-Here are the key points from Dhammarato's Dhamma talk, with illustrative quotes:
-
-1. We often have unwholesome, self-critical thoughts that stem from a victim mindset. "Even when we have a wholesome thought, it's almost always followed by an unwholesome thought. If we have a thought to remember, to start to practice having wholesome thoughts, we will immediately have the unwholesome thought of, 'oh, I should have already been practicing having wholesome thoughts.'"
-2. We have a choice to change our unwholesome attitudes and thoughts. "The reality is, is that you're okay. So, Ivan, what I would suggest is that you stop lying to yourself. Let's get some truth of the matter in there. And the truth is, is that you are okay."
-3. Judging things as good or bad leads to suffering. Accepting reality as it is leads to contentment. "If you live in a paradise, the paradise is just a paradise. Heaven is just heaven. Hell is just hell. The reason why people don't like hell is because they don't like it. And the reason we talk about heaven as being a nice place is because we like it. We're already in a paradise, and that's a real place. But when we judge it as good and bad, we destroy that paradise."
-4. Enlightenment is not a distant goal but available in any moment by being mindful and accepting. "So the Buddha knew all about this. He just didn't have the same language. But he talks about them as the three basic fetters. I find that quite amazing. I mean, talk about psychology. And they laud all of these super psychologists. Sigmund Freud. And the Buddha knew this 2500 years ago."
-5. Being mindful and present actually improves memory and cognitive function, contrary to the questioner's experience. "I would say that, yes, there's a whole lot of kind of automatic stuff. In other words, if you take in data, it registers. But if you're not taking in the data because you're already too busy thinking that nothing matters, then it's not going to register."
