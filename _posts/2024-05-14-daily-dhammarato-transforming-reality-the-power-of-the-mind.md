@@ -25,9 +25,7 @@ We create images based on the information we receive, and then we react emotiona
 
 > And guess what? It took you much less time to see the image of a tunnel being flooded than it took me to say the words. In Gaza, the Israelis are flooding tunnels. And those images are really, really fast. And when we feel, we feel with those images as well as the didactic.
 
-Our thoughts and perceptions are influenced by our past experiences and conditioning, which are stored in our memory.
-
-By understanding how our mind creates our reality, we can take responsibility for our thoughts and emotions, and work towards creating a more positive and peaceful experience of life.
+Our thoughts and perceptions are influenced by our past experiences and conditioning, which are stored in our memory.  Through investigation of that we can begin to understand how our mind creates our reality, and then we can begin to take responsibility for our thoughts and emotions, and work towards creating a more positive and peaceful experience of life by taking the right effort of replacing those those thoughts and habits of thought with wholesome thoughts.
 
 > This, in fact, is what we call wisdom. Wisdom is being able to see what's happening in advance rather than what happened in the past.
 
