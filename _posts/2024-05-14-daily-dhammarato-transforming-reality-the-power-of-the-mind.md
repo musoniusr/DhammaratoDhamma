@@ -43,9 +43,9 @@ Understanding the sequence of thoughts and how one thought leads to another in a
 
 > Begin to watch the thoughts, because most people, they can't track one thought. By the time that they've got one thought, they've got another, and they don't even know how they got there.
 
-We should develop the skill of tracking our thoughts, starting by watching so that we can backtrack at least three thoughts back.
+We can develop the skill of tracking our thoughts, starting by watching so that we can backtrack at least three thoughts back.
 
-> I would suggest that you start watching so that you can backtrack at least three thoughts back. And if you're getting good at it, you can. You can go back four or five or six thoughts.
+> I would suggest that you start watching so that you can backtrack at least three thoughts back. And if you're getting good at it, you can go back four or five or six thoughts.
 
 By observing the chain of thoughts, we can better understand how our mind works and intervene when necessary to cultivate wholesome thoughts.
 
@@ -59,7 +59,7 @@ By turning our attention inward and working on transforming our own mind, we can
 ### Empathy vs. Spreading Joy
 The conventional notion of empathy often leads us to join others in their misery.
 
-> Compassion means join their pity party. Oh, mom is crying over Granny's casket. Let me go nurture her and say, oh, she was a good woman and all of that kind of stuff. You can nurture her well, and you can help her to have a smile.
+> Compassion means join their pity party. "Oh, mom is crying over Granny's casket. Let me go nurture her and say, oh, she was a good woman" and all of that kind of stuff. You can nurture her well, and you can help her to have a smile.
 
 Instead of getting caught up in others' suffering, we should spread joy and help pull people out of their misery.
 
@@ -96,5 +96,5 @@ Private chats with Dhammarato are available at no charge. Questions about medita
 
 <p>►The Sangha UK, Wednesday 7PM BST <a href="https://join.skype.com/w6nFHnra6vdh">Join Skype Call</a>.</p>
 
-There is nothing like direct transmission of the teachings in a one-to-one or one-to-group (Sangha) format.   We encourage you to participate in our weekly Sanghas.
+There is nothing like direct transmission of the teachings in a one-to-one or one-to-group (Sangha) format from a skilled teacher.   We encourage you to participate in our weekly Sanghas.
 
