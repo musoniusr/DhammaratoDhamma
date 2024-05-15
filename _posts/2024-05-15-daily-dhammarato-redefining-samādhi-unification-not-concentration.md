@@ -20,7 +20,7 @@ In Buddhist practice, the term samādhi is often mistranslated as concentration.
 
 The difference between unification and concentration is illustrated through an analogy:
 
-"An example of that would be concentrated milk or frozen concentrated orange juice. And yet frozen concentrated orange juice, you do not drink it [in that concentrated form, you have to make it whole again by adding water] . I mean, it used to be advertised when I was a young man, it was advertised heavily on television. Frozen concentrated orange juice or even concentrated so much they took all the water out and then they called it Tang. But nobody eats tang by the spoonful, nor does anybody drink frozen, concentrated orange juice like it was ice cream or something."
+"An example of that would be concentrated milk or frozen concentrated orange juice. And yet frozen concentrated orange juice, you do not drink it [in that concentrated form, you have to make it whole again by adding water] . I mean, it used to be advertised when I was a young man, it was advertised heavily on television. Frozen concentrated orange juice or even concentrated so much they took all the water out and then they called it Tang. But nobody eats Tang by the spoonful, nor does anybody drink frozen, concentrated orange juice like it was ice cream or something."
 
 Just as concentrated orange juice is undrinkable without adding water to make it whole orange juice again, the mind in true samādhi is not forcibly narrowed or restricted. Instead, it is brought together and unified and made whole.
 
