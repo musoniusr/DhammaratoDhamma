@@ -11,7 +11,7 @@ hidden: false
 toc: true
 ---
 
-# Lighten Your Load | Max M #1 with Callum | 04.17.24
+# Lighten Your Load Max M 1 with Callum 04.17.24
 
 ## Transcript
 
