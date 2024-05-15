@@ -14,7 +14,7 @@ toc: true
 # You Don't Have to Fix The World | Sangha UK #210 | 04.14.24
 
 
-### Transcript
+## Transcript
 
 I have also one question. So today is Sunday afternoon in Thai time. We have David's actually in Malaysia coming back to Koh Phangan, and Michael and I are here on this porch, and it looks like we've got about 14 people on the call today. And so we've got a couple of questions that are interrelated, and that would be western politics and western psychology. Somebody was about to speak.
 
@@ -449,4 +449,22 @@ Thank you. I really appreciate you guys coming. So we'll see you later. See you,
 Thank you. Thank you all. Bonjour. Bonjour. Thank you.
 
 Bonsoir. We'll see you. Okay, bye.
+
+## Want More?  Watch the Whole Dhamma Video Here
+
+<p><iframe style="width:100%;" height="315" src="https://www.youtube.com/embed/SMALigFMRxM?rel=0&amp;showinfo=0" frameborder="0" allowfullscreen></iframe></p>
+
+Private chats with Dhammarato are available at no charge. Questions about meditation are welcome.
+
+
+## Participate in one of our Sanghas Live (Free of Charge)
+
+<p>►The Sangha US, Friday 7 PM PDT <a href="https://join.skype.com/uyYzUwJ3e3TO">Join Skype Call</a>.</p>
+
+<p>►The Sangha UK, Sunday 10AM BST <a href="https://join.skype.com/w6nFHnra6vdh">Join Skype Call</a>.</p>
+
+<p>►The Sangha UK, Wednesday 7PM BST <a href="https://join.skype.com/w6nFHnra6vdh">Join Skype Call</a>.</p>
+
+There is nothing like direct transmission of the teachings in a one-to-one or one-to-group (Sangha) format from a skilled teacher.   We encourage you to participate in our weekly Sanghas.
+
 
