@@ -5,7 +5,7 @@ author: Dhammarato
 categories: [ transcripts, One-on-one Dhamma Talks ]
 tags: [transcripts, samādhi]
 image: "https://i.ytimg.com/vi/K3pKFtdnwD0/maxresdefault.jpg"
-description: "Transcript of April 14 Sangha UK Talk with Dhammarato and Friends"
+description: "Transcript of April 17 Dhamma talk with Dhammarato, Max M, and Callum"
 featured: false
 hidden: false
 toc: true
