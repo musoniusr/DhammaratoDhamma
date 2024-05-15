@@ -28,12 +28,12 @@ Just as concentrated orange juice is undrinkable without adding water to make it
 
 And the repeating over and over again, involves being satisfied with the moment.  Saying things to ourselves like...  
 
-Everything is ok
-everything is alright
-I'm safe
-I'm secure
+- Everything is ok
+- everything is alright
+- I'm safe
+- I'm secure
 
-By redefining samādhi, we can approach meditation with the aim of gladdening and unifying the mind rather than forcefully concentrating it. This leads to a state where the mind is "whole" and "clean," free from the junk we often carry.
+By redefining samādhi away from concentration, we can approach meditation with the aim of gladdening and unifying the mind rather than forcefully concentrating it. This leads to a state where the mind is "whole" and "clean," free from the junk we often carry.
 
 To dive deeper into the true meaning of samādhi and how it can transform your practice, watch the full video or read the complete transcript of the one-on-one Dhamma talk called [Lighten Your Load with Max M and Callum](https://dhammarato.com/lighten-your-load-max-m-1-with-callum-04-17-24-K3pKFtdnwD0/). Discover the true meaning and application of samadhi and find freedom in the present moment.
 
