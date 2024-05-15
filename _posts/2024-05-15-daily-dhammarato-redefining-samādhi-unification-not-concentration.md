@@ -30,8 +30,9 @@ And the repeating over and over again, involves being satisfied with the moment.
 
 - Everything is ok
 - everything is alright
-- I'm safe
-- I'm secure
+- I feel comfortable
+- I feel safe
+- I feel secure
 
 By redefining samādhi away from concentration, we can approach meditation with the aim of gladdening and unifying the mind rather than forcefully concentrating it. This leads to a state where the mind is "whole" and "clean," free from the junk we often carry.
 
