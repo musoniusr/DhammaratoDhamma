@@ -16,7 +16,7 @@ modified: 2024-05-13T10:02:44-04:00
 
 In Buddhist practice, the term samādhi is often mistranslated as concentration. However, this understanding may lead practitioners astray.
 
-"The word samādhi does not, does not translate into the word concentration. The word samādhi translates better as unification or collectiveness, bringing things together to where concentration has to do with focusing down and eliminating things."
+"The word samādhi does not translate into the word concentration. The word samādhi translates better as unification or collectiveness, bringing things together to where concentration has to do with focusing down and eliminating things."
 
 The difference between unification and concentration is illustrated through an analogy:
 
