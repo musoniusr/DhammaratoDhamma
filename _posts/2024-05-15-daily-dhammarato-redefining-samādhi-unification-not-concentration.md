@@ -38,7 +38,7 @@ By redefining samādhi away from concentration, we can approach meditation with 
 To dive deeper into the true meaning of samādhi and how it can transform your practice, watch the full video or read the complete transcript of the one-on-one Dhamma talk called [Lighten Your Load with Max M and Callum](https://dhammarato.com/lighten-your-load-max-m-1-with-callum-04-17-24-K3pKFtdnwD0/). Discover the true meaning and application of samadhi and find freedom in the present moment.
 
 
-## Participate in one of our Sanghas Live (Free of Charge)
+### Participate in one of our Sanghas Live (Free of Charge)
 
 <p>►The Sangha US, Friday 7 PM PDT <a href="https://join.skype.com/uyYzUwJ3e3TO">Join Skype Call</a>.</p>
 
