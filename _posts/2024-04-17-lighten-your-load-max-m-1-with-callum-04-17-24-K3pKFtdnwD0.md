@@ -15,21 +15,28 @@ toc: true
 
 ## Transcript
 
-So, Max, we've been at it for a while, but let's start recording and you have a question, so go ahead. Sure. I think my assumption about Samata or these two things, we're talking about Samata Vipassana separating out but needing to be cultivated together, I think my assumption there is that same to about being able to collect enough concentration or samadhi to then apply it to reflect on Anita anatta dukkha. I think that's when I think about these two things, that's how I think about them. One is to have enough space to be able to, enough collectedness to then be able to direct the mind to reflect on these things.
+**Dhammarato**: So, Max, we've been at it for a while, but let's start recording and you have a question, so go ahead. 
 
-That's how I think about it. Is that, is that a healthy way to think about it? I would say probably we could talk about it in better terms than that. Okay, sure. What's the suggestion?
 
-Well, you use the word concentration and samati in actually the same sentence. Yeah. All right, so let's give them definition so that we can understand. Now, the word samati does not, does not translate into the word concentration. The word samati translates better as unification or collectiveness, bringing things together to where concentration has to do with focusing down and eliminating things.
+**Max**: Sure. I think my assumption about Samata or these two things, we're talking about Samatha-vipassana separating out but needing to be cultivated together, I think my assumption there is that same to about being able to collect enough concentration or samadhi to then apply it to reflect on anicca anatta dukkha. I think that's when I think about these two things, that's how I think about them. One is to have enough space to be able to, enough collectedness to then be able to direct the mind to reflect on these things.
+
+That's how I think about it. Is that, is that a healthy way to think about it? 
+
+**Dhammarato**: I would say probably we could talk about it in better terms than that. Okay, sure. What's the suggestion?
+
+Well, you use the word concentration and samādhi in actually the same sentence. Yeah. All right, so let's give them definition so that we can understand. 
+
+Now, the word samādhi does not, does not translate into the word concentration. The word samādhi translates better as unification or collectiveness, bringing things together to where concentration has to do with focusing down and eliminating things.
 
 An example of that would be concentrated milk or frozen concentrated orange juice. And yet frozen concentrated orange juice, you do not very few people drink it. I mean, it used to be advertised when I was a young man, it was advertised heavily on television. Frozen concentrated orange juice or even concentrated so much they took all the water out and then they called it tangled. But nobody eats tang by the spoonful, nor does anybody drink frozen, concentrated orange juice like it was ice cream or something.
 
-That in fact, the frozen, concentrated orange juice, they always put water back in it. They make it whole again so that it can be drank. All right, so concentration is exactly opposite of samati unless we change the definition of concentration. Yeah. Now, though, there is a way of calling concentration that we can use it, but it has to have a particular definition to it.
+That in fact, the frozen, concentrated orange juice, they always put water back in it. They make it whole again so that it can be drank. All right, so concentration is exactly opposite of samādhi unless we change the definition of concentration. Yeah. Now, though, there is a way of calling concentration that we can use it, but it has to have a particular definition to it.
 
 And that particular definition has to do with repeating it over and over and over and over again. An example of that would be mom tells her daughter to do your homework and she's doing her homework, and then she starts looking at the cell phone or she's doing her homework and watching tv. And the mom says to concentrate. All right, if the daughter, here's the word concentrate of do this problem in your homework, do this math problem, and then do the next one, and then do the next one and then do the next one until the list is finished. That's concentration.
 
 But almost all ways kids will say, oh, I'm supposed to focus, I'm supposed to shut down, I'm supposed to put things tight. Okay, so let's use the example of an alarm clock for a moment. Let's imagine that you found an old, maybe a cuckoo clock or an old style wind up clock that had chimes or something, maybe your grandfather clock in the attic. If we bring that clock out of the attic and take it home or take it downstairs and take the gears apart, carefully watching which each gear goes where and then clean the gears, take all the dirt out and then carefully put the clock back together again, making sure all the jewels are in the right place. Then when we wind up the clock, the clock has become somati.
 
-Now it's had all the dirt taken out and it's put back together again and it's holes and it'll operate as a clock. Now let's concentrate. That clock, we take it out of the attic, we put it on the bench and we take a sledgehammer to it and we're now going to make it much smaller, okay? That's how most people practice meditation is by beating on themselves with a hammer rather than taking everything apart and cleaning it. So while the Buddha taught samati, most of western meditation thinks of it as concentration, it's actually been wrongly translated that way.
+Now it's had all the dirt taken out and it's put back together again and it's holes and it'll operate as a clock. Now let's concentrate. That clock, we take it out of the attic, we put it on the bench and we take a sledgehammer to it and we're now going to make it much smaller, okay? That's how most people practice meditation is by beating on themselves with a hammer rather than taking everything apart and cleaning it. So while the Buddha taught samādhi, most of western meditation thinks of it as concentration, it's actually been wrongly translated that way.
 
 All right. But if we use the word concentration in the sense that it has to be done over and over and over and over again. Yeah. This thought moment and the next thought moment and the next thought moment, there's no struggle because the whole point, remember, if you've had any anapanasati, you know that step ten, which is actually not a step, is item number ten in the list, has not to do with chronology, is to gladden the mind. So we have to gladden the mind and then it goes back to the old state and then we gladden the mind again and it goes back to the old state and we gladden it again.
 
@@ -63,17 +70,17 @@ I feel secure. I feel comfortable. I feel satisfied, because satisfaction is the
 
 Everything is fine. Not a worry in the world. Is that right, Colin? Not a worry in the world. Everything is already okay.
 
-Yeah. Damra, I was going to ask if you could talk about how that ties in with the three trainings in the noble Eightfold path. Because you say that it's wisdom first, then concentration, and then sila. And how. Sila samatipania.
+Yeah. Damra, I was going to ask if you could talk about how that ties in with the three trainings in the noble Eightfold path. Because you say that it's wisdom first, then concentration, and then sila. And how. Sila samādhipania.
 
 Is that what you're talking about? Yeah. Okay. And how the no. Eight fold.
 
 Pathetic. All right, let us start off, then, with that. Part of the point is that there are two noble. Excuse me. Two eight fold paths.
 
-There is the Eightfold path that everybody starts on. This is the Eightfold path that's taught all over the place, especially in western Buddhism. And then there is the Eightfold and noble path, which is where we start teaching. According to the advice that I've gotten from both Vika Buttadasa and a chan po, we do not teach the ordinary path that starts with selah samati kanya, all right? Sila means behavior.
+There is the Eightfold path that everybody starts on. This is the Eightfold path that's taught all over the place, especially in western Buddhism. And then there is the Eightfold and noble path, which is where we start teaching. According to the advice that I've gotten from both Vika Buttadasa and a chan po, we do not teach the ordinary path that starts with selah samādhi kanya, all right? Sila means behavior.
 
-Now, there's a value in watching your behavior, and so you get your behavior perfect or good enough, and then you do the samati practice, which means getting the mind settled. You can add the word samatha there, and then you come to right view. Okay, so I'm quoting now. Sutra number 24, purification of selah, purification of the mind, and then purification of view. All right.
+Now, there's a value in watching your behavior, and so you get your behavior perfect or good enough, and then you do the samādhi practice, which means getting the mind settled. You can add the word samatha there, and then you come to right view. Okay, so I'm quoting now. Sutra number 24, purification of selah, purification of the mind, and then purification of view. All right.
 
-That purification of view will then start you on the Eightfold noble path. That actually starts with panya. It starts. And the way that you would say that would be Samati Sila, that Selah is the outcome of having a noble mind that's unified. And so this is actually the way that Buddha teaches.
+That purification of view will then start you on the Eightfold noble path. That actually starts with panya. It starts. And the way that you would say that would be samādhi Sila, that Selah is the outcome of having a noble mind that's unified. And so this is actually the way that Buddha teaches.
 
 The eight pole noble path is that we start with not Selah. That that's what the monks teach the children. That's the ordinary way. Okay, that's. That's for, let us say, the beginners.
 
@@ -81,7 +88,7 @@ And that we need that in our society. And we need to have those seal of rules an
 
 Are you going to get yelled at? Are you going to miss out on your dessert or something like that? We punish the children. And that instead of that, we could, in fact, teach them wisdom, that you're better off if you practice it by wisdom. In other words, I'll get into it in just a moment.
 
-So we start with Silas Samatipania for ordinary people. But the way that I teach is according to a chan po and Bhikkhu Buttadasa, is to make this distinction so that the students recognize that I don't teach it that way. We teach it from the position that you've got to see what you're doing. You got to take a look. You got to remember to look at what you're doing and then make a change.
+So we start with Silas samādhipania for ordinary people. But the way that I teach is according to a chan po and Bhikkhu Buttadasa, is to make this distinction so that the students recognize that I don't teach it that way. We teach it from the position that you've got to see what you're doing. You got to take a look. You got to remember to look at what you're doing and then make a change.
 
 This is the three steps of the Eightfold noble path. This is, in fact, the ponya part of taking a look at what you're doing. To remember, to take a look at what you're doing, to recall, to reflect, to see, to do it over and over and over and over and over again. This is what Sati is all about, is to come into the present moment and look at what you're doing and then make a change to it. So this is right dickey, right, noble.
 
@@ -91,17 +98,17 @@ And when you begin to change your attitude over and over again, this is what's a
 
 And then in sutta number 48, the buddha makes the point that no matter how hindered the mind, no matter how much unwholesome stuff or what obstructions there are, the student knows. He knows that he can clean that stuff out and come to reality, to come back to the way things actually are. Now, this is called the first knowledge, and that first knowledge is noble. That first knowledge is supra mundane or locata. It's above the world.
 
-It's super mundane. It is noble, and it is not held by your masses of people. It's not held by ordinary people. Ordinary people are still stuck at Siva Samatipanya, and here we are transferring into pNA samati sila. Okay, this is, in fact, what really unifies and organizes the mind is when we have that confidence to come out of our hindrances by being able to see them, no matter how much you obstructed the mind gets.
+It's super mundane. It is noble, and it is not held by your masses of people. It's not held by ordinary people. Ordinary people are still stuck at Siva samādhipanya, and here we are transferring into pNA samādhi sila. Okay, this is, in fact, what really unifies and organizes the mind is when we have that confidence to come out of our hindrances by being able to see them, no matter how much you obstructed the mind gets.
 
-I can see that, and I can come right out of it. All right? And so with that SAMa SANkA, that's where the right unification of mind comes in. The samati mind is a mind that is whole, a mind that is, let us say, confident to keep making the changes into the wholesome over and over and over again. And as the mind is made whole that way, like the clock that I was giving the example of, okay, that is clean now, we've cleaned our clock, we've taken all the junk out of it, and anytime a speck of dust comes into that clock, we catch it, and we keep it, the mind clean.
+I can see that, and I can come right out of it. All right? And so with that SAMa SANkA, that's where the right unification of mind comes in. The samādhi mind is a mind that is whole, a mind that is, let us say, confident to keep making the changes into the wholesome over and over and over again. And as the mind is made whole that way, like the clock that I was giving the example of, okay, that is clean now, we've cleaned our clock, we've taken all the junk out of it, and anytime a speck of dust comes into that clock, we catch it, and we keep it, the mind clean.
 
-We keep the clockwork functioning correctly. Okay? So when the mind is a Samati mind, that means that we're free from hindrances, which another way of saying it, you don't want anything, you're okay the way you are. You're safe, secure, comfortable, and satisfied. Over and over again.
+We keep the clockwork functioning correctly. Okay? So when the mind is a samādhi mind, that means that we're free from hindrances, which another way of saying it, you don't want anything, you're okay the way you are. You're safe, secure, comfortable, and satisfied. Over and over again.
 
 And by the way, I'll add something that I should have said before. And that is that the son of ten kappa has that quality of confidence. Which means that now the mind is successful. So we've added from safe, secure, comfortable and satisfied. And now into being successful.
 
 When the mind is successful, that means we know that we can clean it out every time. Doesn't matter how much. So this is what then begins to bring the mind to that organized place. Is because we've got that confidence that we are successful. We're the winners here.
 
-We could do it. We're no longer victims. We were born as victims and raised as victims. And we all have a victim's mentality in the sense of we want help, we want a guru, we want a doctor, we want a teacher. But when you have that Samati mind, that means that you already have that winner's attitude.
+We could do it. We're no longer victims. We were born as victims and raised as victims. And we all have a victim's mentality in the sense of we want help, we want a guru, we want a doctor, we want a teacher. But when you have that samādhi mind, that means that you already have that winner's attitude.
 
 I can do this myself. I'm the boss here. I'm the boss of my feelings. I can feel the way that I want to feel. But the world doesn't tell me how to feel.
 
@@ -111,7 +118,7 @@ How would you feel? I'd definitely be. There'll be a lot of more spaciousness wi
 
 You'd feel spacious. Isn't that another word for empty? Could be, yeah. All right. Okay.
 
-So we're going in the right direction. Okay. So once we have that Samati mind. That's based upon confidence. That's based upon the over and over practice of taking unwholesome thoughts out and putting wholesome thoughts in.
+So we're going in the right direction. Okay. So once we have that samādhi mind. That's based upon confidence. That's based upon the over and over practice of taking unwholesome thoughts out and putting wholesome thoughts in.
 
 Which is another way of saying gladdening the mind. And gladdening the mind. And keep gladdening the mind. Until the mind is glad. It's no longer a victim.
 
