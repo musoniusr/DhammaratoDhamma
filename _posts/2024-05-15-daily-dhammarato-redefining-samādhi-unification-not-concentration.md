@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Redefining Samādhi: Unification, Not Concentration"
+title: "Redefining Samādhi: Unification, Not Concentration - Daily Dhammarato"
 author: Dhammarato
 categories:
   - Daily Dhammaarato
