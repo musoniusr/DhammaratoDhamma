@@ -11,7 +11,7 @@ hidden: false
 toc: true
 ---
 
-# Don't Have To Be Afraid To Feel Good The Sangha US #112 4.20.24
+## Don't Have To Be Afraid To Feel Good The Sangha US 112 4-20-24
 
 
 ### Transcript
