@@ -5,14 +5,14 @@ permalink: /glossary
 comments: true
 ---
 
-    <html>
-    <head>
-      <title>Buddhist Vocabulary</title>
-    </head>
-    <body>
-      <h1>Buddhist Vocabulary</h1>
-      <ul>
-        <li><strong>Anagami</strong> - Non-returner; the third stage of enlightenment.</li>
+<html>
+<head>
+<title>Buddhist Vocabulary</title>
+</head>
+<body>
+<h1>Buddhist Vocabulary</h1>
+<ul>
+<li><strong>Anagami</strong> - Non-returner; the third stage of enlightenment.</li>
 <li><strong>Anapanasati</strong> - Cultivating awareness and presence through the continuous observation of the breath as it moves in and out of the body,for more in depth understanding see M.N (majhimma nikaya) 118</li>
 <li><strong>Anicca</strong> - The constant and ever-changing nature of all phenomena</li>
 <li><strong>Arahant</strong> - someone who has gone beyond their defilements.</li>
