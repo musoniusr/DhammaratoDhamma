@@ -11,7 +11,7 @@ hidden: false
 toc: true
 ---
 
-# Pleasure Wherever It May Be Found The Sangha US 113 04-27-24
+## Pleasure Wherever It May Be Found The Sangha US 113
 
 ### Transcript
 
