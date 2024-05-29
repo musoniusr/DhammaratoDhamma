@@ -13,6 +13,10 @@ toc: true
 
 ## What is Thinking? The Sangha UK 214
 
+### Summary
+
+In this dhamma talk with the UK Sangha, Dhammarato challenges our conventional understanding of thinking and reality. He reveals that thinking is not just discursive thoughts, but how we spend each moment of our mind. Dhammarato emphasizes that while reality is what it is, our perceptions and concepts shape our experience of it more than objective circumstances. Through the practice of Anapanasati, he offers practical tools to cultivate awareness of our thoughts and feelings, enabling us to consciously choose our mental attitudes. Dhammarato also highlights how our language often reflects and perpetuates a victim mentality, and encourages us to start noticing this and adopt language that empowers us. By the end of this transcript, you'll have a newfound understanding of the nature of your mind and the power you have to transform your emotional landscape. If you're ready to master your mind and choose your own experience of reality, this transcript is a must-read.
+
 ### Transcript
 
 So welcome to the Sunday afternoon call in Thailand. There's several of us here. David and Michael and I are on the island. Koh Phangan and others of you are all over the place, mostly. This call is for the UK, but I think some of the people are in the US right now also.
