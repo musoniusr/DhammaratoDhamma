@@ -438,7 +438,7 @@ Thank you for listening to another guru Viking podcast. For more interviews like
 
 ### Want More?  Watch the Whole Dhamma Video Here
 
-<p><iframe style="width:100%;" height="315" src="https://www.youtube.com/embed/3OsS_lgKAeM?rel=0&amp;showinfo=0" frameborder="0" allowfullscreen></iframe></p>
+<p><iframe style="width:100%;" height="315" src="https://www.youtube.com/watch?v=IZDCJkFOiUo?rel=0&amp;showinfo=0" frameborder="0" allowfullscreen></iframe></p>
 
 
 
