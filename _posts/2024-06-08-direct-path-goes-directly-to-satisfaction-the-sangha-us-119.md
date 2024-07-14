@@ -1,14 +1,3 @@
-
----
-created: 2024-07-14
-modified: 2024-07-14T19:19:47
-dateofpublication: 2024-07-05
-author: Dhammarato Dhamma
-note_type: youtube transcript
-source: https://www.youtube.com/watch?v=yTvtKlT5SrA
-tags: transcripts, youtube-videos, video
----
-
 ---
 layout: post
 title:  "Direct Path Goes Directly to Satisfaction - The Sangha US 119 - 06.08.24"
