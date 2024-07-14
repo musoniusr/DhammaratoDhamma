@@ -25,7 +25,7 @@ I'm in Florida. You're in Florida? All right. And Thomas, where are you? Normall
 
 But at the moment I'm in Singapore. Okay.
 
-So welcome, everybody. We started already talking about a term that is fairly well known but generally misunderstood, and that, in fact, it's the. It's the seat of the practice or the heart of the actual practice. And the word is eta gatha. Now, eta gatha actually can be understood to be ekka is one and gotta is the word go.
+So welcome, everybody. We started already talking about a term that is fairly well known but generally misunderstood, and that, in fact, it's the. It's the seat of the practice or the heart of the actual practice. And the word is ekaggatā. Now, ekaggatā actually can be understood to be ekka is one and gotta is the word go.
 
 So one go means to go directly to the actual practice, or the practice is to go directly to the point of being free from Dukkha. So the Buddha's teaching, Dukkha, Dukkha, Naroda, is actually can be done in one go. You just do it. And that the method that we use to do that is the Eightfold noble path. But we specifically start with remembering to take a look at what's going on.
 
