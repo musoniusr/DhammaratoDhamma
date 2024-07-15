@@ -11,7 +11,7 @@ hidden: true
 toc: true
 ---
 
-# Direct Path Goes Directly to Satisfaction The Sangha US 119 June 8 2024
+## Direct Path Goes Directly to Satisfaction The Sangha US 119
 
 ### Transcript
 
