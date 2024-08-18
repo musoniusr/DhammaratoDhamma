@@ -11,9 +11,7 @@ hidden: true
 toc: true
 ---
 
-
-
-## As Habits Change They Will Change Your Destiny The Sangha US 124
+## As Habits Change They Will Change Your Destiny Sangha US 124
 
 
 ### Transcript
@@ -347,7 +345,7 @@ Thank you so much. Thank you for the talk. Appreciate it. Thank you. Damarato.
 
 ### Want More?  Watch the Whole Dhamma Video Here
 
-<p><iframe style="width:100%;" height="315" src="https://www.youtube.com/embed/yTvtKlT5SrA(https://www.youtube.com/watch?v=j6gGcUhnzDU)?rel=0&amp;showinfo=0" frameborder="0" allowfullscreen></iframe></p>
+<p><iframe style="width:100%;" height="315" src="https://www.youtube.com/embed/yTvtKlT5SrA(https://www.youtube.com/watch?v=j6gGcUhnzDU?rel=0&amp;showinfo=0" frameborder="0" allowfullscreen></iframe></p>
 
 
 
