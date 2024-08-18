@@ -34,7 +34,7 @@ You challenged that entire idea. In fact, you said that the Buddha did not recom
 I have several questions, but perhaps you could begin by addressing this idea of formal practice and in what way western Buddhism, in your view, has deviated from the teachings of the Buddha in this regard. 
 
 
-Dhammarato: All right, the first thing to talk about would be the middle path, that everything that fits in with the teaching of the Buddha about Dukkha, Dukkha Naroda, seeing the dukkha and coming out of it is the real practice. And that often we find formal practice in the sense that people are not getting much value out of it. And so they try harder and try harder, put in more hours, spending a lot of time. In fact, the formal system tends to start with an hour, which almost no one that's never practiced before is ready for.
+Dhammarato: All right, the first thing to talk about would be the middle path, that everything that fits in with the teaching of the Buddha about Dukkha, Dukkha Nirodha, seeing the dukkha and coming out of it is the real practice. And that often we find formal practice in the sense that people are not getting much value out of it. And so they try harder and try harder, put in more hours, spending a lot of time. In fact, the formal system tends to start with an hour, which almost no one that's never practiced before is ready for.
 
 
 And so, in fact, the formal practice that is often used actually creates dukkha, rather than eliminating it right from the get go. Now, the Buddha taught, and this is in the dhammapada, as well as the samhutanakaya and other places that the teaching of the Buddha is good in the beginning, good in the middle, and good in the end, with the right phrasing and meaning and the order in which it's taught. And oftentimes, the beginners, it's kind of like a western mindset. We want to see the bottom line. We don't want to read through the whole novel.
@@ -139,7 +139,7 @@ Aha, I see that fear coming up, and there is no one here to be afraid. And so sh
 They're trying to do what they were told to do.
 
 
-So that's, in essence, what the whole teaching is, is to come to the state of being safe, secure, comfortable, relaxed, and satisfied. Because satisfaction is the exact opposite of dukkha. That's the dukkha naroda - is coming to a state of satisfaction. And by practicing that over and over and over again, we become quite successful.
+So that's, in essence, what the whole teaching is, is to come to the state of being safe, secure, comfortable, relaxed, and satisfied. Because satisfaction is the exact opposite of dukkha. That's the dukkha Nirodha - is coming to a state of satisfaction. And by practicing that over and over and over again, we become quite successful.
 
 
 And so after satisfaction comes success, and that's a real attitude. This is part of the Eightfold noble path called samasan kappa, which is when we change our attitude from being a victim to our meditation practice, victims to our jobs, victims to the police, victims to any and everything. And now we're victims to the meditation retreat. And when we come out of that attitude of being a victim, then we come into that attitude of, I could do this. I can handle it. I can be successful at feeling safe and secure. And then I would add a last item on that, and that once we have success after success after success, then we would go into the state of being wealthy. That I've got more joy than I can possibly use, so I have to give it away. You become altruistic. This is where real meta comes in, is when you have so much joy, you can't help but share it with others.
@@ -428,7 +428,7 @@ Yet another religion. Gosh, we got so many religions, none of them work. We don'
 What we need is friends. Dhamma prince. That's open Sangha foundation. And I can't think of a better way of ending this interview than on that Tina Turner quote. We don't need another hero.
 
 
-That's great. Well, Damrato, it's always wonderful to speak with you, and it's been very nice to speak to you today. I'm very happy to talk with you, Steve. Likewise. Thank you very much.
+That's great. Well, Dhammarato, it's always wonderful to speak with you, and it's been very nice to speak to you today. I'm very happy to talk with you, Steve. Likewise. Thank you very much.
 
 
 Thank you for listening to another guru Viking podcast. For more interviews like these, as well as articles, videos, and guided meditations, visit www.guruviking.com.

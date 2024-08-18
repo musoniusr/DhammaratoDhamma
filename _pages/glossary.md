@@ -55,7 +55,7 @@ comments: true
 <li><strong>Sakadagami</strong> - Once-returner; the second stage of enlightenment.</li>
 <li><strong>Samadhi</strong> - Unification of mind. When the mind feels happy, successful and is free from hindrances it stops wanting anything.</li>
 <li><strong>Samatha</strong> - Tranquillity meditation; meditation aimed at calming the mind.</li>
-<li><strong>Samma Sankappa (Right resolve) involves the commitment to renunciation, compassion, and non</strong> - harming.</li>
+<li><strong>Samma Sanghappa (Right resolve) involves the commitment to renunciation, compassion, and non</strong> - harming.</li>
 <li><strong>Samsara</strong> - The cycle of birth and death; the continual cycle of existence in various forms.</li>
 <li><strong>Samskara</strong> - Mental formations; volitional formations or predispositions.</li>
 <li><strong>Sangha</strong> - The Buddhist community of monks, nuns, novices and lay people.</li>

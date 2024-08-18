@@ -73,7 +73,7 @@ And this is what the Buddha realized. And that's when he then sit under the bode
 
 Our judgment is going and saying, this is good and this is bad, where reality just is, and there is no good and bad. But when we get caught up in the duality of good and bad, we go around destroying parts of paradise that we don't like. They're bad. We've been told that it's bad or we don't like it naturally. So what then is the Eightfold noble path that the Buddha teaches?
 
-And what is the four noble truths that is the foundation of that, as you heard me say so many times, the whole teaching of the Buddha. The Buddha said that he only taught one thing both formally, and now I only teach dukkha. Dukha Naroda. Well, that's another way of saying the hard, soft. What that means is that we have to come out of our hard way of doing things, of being dissatisfied and wanting to fix things and come into the soft, easy.
+And what is the four noble truths that is the foundation of that, as you heard me say so many times, the whole teaching of the Buddha. The Buddha said that he only taught one thing both formally, and now I only teach dukkha. Dukha Nirodha. Well, that's another way of saying the hard, soft. What that means is that we have to come out of our hard way of doing things, of being dissatisfied and wanting to fix things and come into the soft, easy.
 
 Everything is already okay. It's actually an easy transition logically, but it's not so easy because we've got the habits of doing it the hard way. And so the eight full noble path and the four noble truths are actually based upon this concept, is that we think there's something to it, to where in fact, there's really not much of anything to it. It's easy, but we work hard. And when we come to the dhamma, most of us continue to work hard rather than remember that we can take it easy, that it's not hard.
 
@@ -153,7 +153,7 @@ I'm just going to take it easy. Nothing to it. Everything is all right. The worl
 
 And yet I can show you millions and millions and millions of examples of people who don't work and they eat. So working and eating are not necessarily related. Another point would be, is that some people who have no food, they work really, really hard, and they still have no food. So working and getting food is not actually as related as people think that, in fact, most people have a salary such that they only spend a very small amount of their money on food. So that whole cliche of, you don't work, you don't eat has us trapped.
 
-It's a lie. It's not true. And it's one of many of the lies that we've been told. And what the actual practice of Annapanisati does is it frees us from the lies that we've been told, because we can see the way things really are. And the way things really are is it's already okay.
+It's a lie. It's not true. And it's one of many of the lies that we've been told. And what the actual practice of Annapanasati does is it frees us from the lies that we've been told, because we can see the way things really are. And the way things really are is it's already okay.
 
 Everything's already just fine. Not a problem, not a worry in the world. If we can start to get in seclusion. And here's a really important reason to get into seclusion, is because we're practicing something that goes against the grain of our society. It really goes against the grain.
 

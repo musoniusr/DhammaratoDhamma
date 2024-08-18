@@ -26,11 +26,11 @@ One was meditation, which we don't do, and contemplation, which, as far as I'm c
 
 We don't daydream about things that the actual Buddha dhamma is to see reality, to see things the way that they are, so that we can make a change for the better. And, in fact, the most important point that Vikki Buddha Dasa made is that the teachings of the Buddha is a change model. It's not trying to figure stuff out so that, you know, it's to see things the way that they are so that you can make a change to fix it for the better. Now, I, uh. At the very beginning, the Buddha would say that he only teaches one thing.
 
-Everybody knows what that is, right? Alexander Hippel, what did the Buddha teach dissatisfaction and the end of dissatisfaction. Right. Okay, that's in English. Dukkha Duka Naroda.
+Everybody knows what that is, right? Alexander Hippel, what did the Buddha teach dissatisfaction and the end of dissatisfaction. Right. Okay, that's in English. Dukkha Duka Nirodha.
 
 He taught dissatisfaction and the end of dissatisfaction. That that was all he was interested in. He wasn't interested in spooks and fairies and sky monsters and devils and hells and heavens and all of that kind of stuff, other than to recognize that those things are merely a state of mind. And when we see what's in the mind, we see for real what's going on, we can come out of those dissatisfactions into a state of satisfaction. Now, many people have the idea, oh, I want to meditate because I want something.
 
-I want to enlighten them, or I want Nirvana, or I want Johnna or I want this or that and that. Basically what you were saying when we do that is I want means that I'm dissatisfied. And if we can see that that's what's going on, that we're dissatisfied because we're wanting something, then what we can do is make a change to stop wanting, just stop wanting. And when we stop wanting wisely, we are already in a state of satisfaction because dissatisfaction is a state of warning. Wanting to either get rid of something, wanting to get something, or wanting basically to know something, which is just Morgedon.
+I want to enlighten them, or I want Nirvana, or I want Jhana or I want this or that and that. Basically what you were saying when we do that is I want means that I'm dissatisfied. And if we can see that that's what's going on, that we're dissatisfied because we're wanting something, then what we can do is make a change to stop wanting, just stop wanting. And when we stop wanting wisely, we are already in a state of satisfaction because dissatisfaction is a state of warning. Wanting to either get rid of something, wanting to get something, or wanting basically to know something, which is just Morgedon.
 
 So this, there is a cause of this dissatisfaction. And the cause for dissatisfaction is always in our own mind. Now, religions think about that it's God's fault that God did it, that we got to rely upon God.
 
@@ -90,7 +90,7 @@ And when you have a choice about the reality on the inside, then you would natur
 
 Does anybody here choose consciously, willingly to be disappointed and satisfied?
 
-No. If we're awake, if we're able to see what's going on right now, the choice that we would make would be to be safe and secure and comfortable and satisfied right here, right now. So this leads us then to the fourth noble truth. Now, this point about Dukkha Duka Naroda, or dissatisfaction versus satisfaction, that's the basic teaching. But the Buddha unpacks that into four noble truths.
+No. If we're awake, if we're able to see what's going on right now, the choice that we would make would be to be safe and secure and comfortable and satisfied right here, right now. So this leads us then to the fourth noble truth. Now, this point about Dukkha Duka Nirodha, or dissatisfaction versus satisfaction, that's the basic teaching. But the Buddha unpacks that into four noble truths.
 
 The first one is that dissatisfaction exists. You made it up. It's not that life itself is unsatisfactory because there's no one here who would say, yeah, you're right, life itself is unsatisfying. Let's just kill ourselves right now. Nobody's willing to do that.
 
@@ -120,7 +120,7 @@ Everything is fine. We can start having some noble, happy thoughts. And so this 
 
 No hurry, no worry, no problems. Everything is going to take care of itself. Just one more breath. Just one more. That's all we need to do.
 
-And so these are the three points of the eight vulnerable path that's so important. This is how we start, is we remember to take a look at what we're doing and then make a change to it. If we do that over and over and over and over again, we begin to change our attitude. That attitude, by the way, in the pali, is called sama sankapa. It also has the word shraddha or sadha, which means confidence.
+And so these are the three points of the eight vulnerable path that's so important. This is how we start, is we remember to take a look at what we're doing and then make a change to it. If we do that over and over and over and over again, we begin to change our attitude. That attitude, by the way, in the pali, is called sama Sanghapa. It also has the word shraddha or sadha, which means confidence.
 
 Do you have the confidence that you could take this next breath happily no matter what happens? Well, the way to handle that is by getting away from everything, getting away from the alligators and the snakes, getting away from the cops, getting away from society, coming back to a place in seclusion where it's very easy to recognize that you are saved, to see that you're safe, to recognize that you're safe, to recognize that you're okay. Right now, this is how we practice over and over and over again. And when we begin to get the confidence that I can handle seclusion, then we begin to say, okay, I can handle seclusion. Let me go handle a little bit of the world.
 
@@ -262,7 +262,7 @@ I had a question about the gladdening the mind and how it relates to greed, ill 
 
 Well, just move your leg. Greed would be, oh, I need a million dollars. No, you don't. You've already got everything you need. And so you can begin to counteract those thoughts of I need this and I want that.
 
-And especially true for westerners. Oh, if I only understood Damarato, if I only stood Annapanisati, then I could practice.
+And especially true for westerners. Oh, if I only understood Damarato, if I only stood Annapanasati, then I could practice.
 
 And that's why students never go anywhere. It's because they want to know first.
 
@@ -298,7 +298,7 @@ One last point, then, and that is that I would like to everyone to congratulate 
 
 And I'd like to give a great big warm thank you.
 
-Thank you, Ivan Alexander. All of our regulars coming around and continuing to participate in Sanka. This is what Sanka is all about. So thank you, Sanka as well, for just keeping things going. And by that, I mean keeping on doing nothing, just chilling.
+Thank you, Ivan Alexander. All of our regulars coming around and continuing to participate in Sangha. This is what Sangha is all about. So thank you, Sangha as well, for just keeping things going. And by that, I mean keeping on doing nothing, just chilling.
 
 So, yes, yes. Another thing that Mike Mick has been doing is helping with the website, the Open Sangha foundation. And I would highly recommend that you start in your own mindset, moving out of Skype onto the website. That we have friends, we have group, we have posts. Anything that you can do on Skype now we can do on the website.
 

@@ -88,7 +88,7 @@ Where do you feel it? Um, yeah, just. Just sort of, like, around the. The abdome
 
 In the stomach. The abdomen, the chest area, where all of that blood is. It has all of that adrenaline in it. And so whenever you feel uptight, anxious, whenever you feel agitated in a panic mode, then, in fact, that panic mode or that agitation is because the whole body has so much adrenaline in it that is almost like an energy drink that we have already in the blood. And so many times I've asked students if you.
 
-They will mention, oh, while I was sitting in Annapanisati, I began to recognize that I had anxiety. I had tension. So I start asking them questions, where is that anxiety in the body?
+They will mention, oh, while I was sitting in Annapanasati, I began to recognize that I had anxiety. I had tension. So I start asking them questions, where is that anxiety in the body?
 
 Where does it belong? Or where do you feel it? And most people, in fact, are not aware of their anxiety consciously. What they're aware of it is subconsciously. And so they become agitated and upset at a feeling level without understanding either this process that they go through or that they had certain thoughts, memories, visions.
 
@@ -96,7 +96,7 @@ They heard something on the news that created this blood flow that is full of en
 
 And so the question really would be, what were you thinking that caused you to feel anxious and anxiety? The next question that we would ask would be, is this anxiety brand new, or is this just an old habit? Because we go through this same cycle over and over and over again. We take in information, we heard the news, we create visualizations, we have a story about it. Then that story gets stored into the amygdala, which then creates this message to the pituitary glands.
 
-That gets the adrenaline system ready for fight or flight, and they're readying it is the freeze. And so these are all neurological things that happen within the body, and yet very few people are aware of this system, and they're not even aware of the anxiety that they've created. So this is where Annapanisati comes in is because we're actually not just interested in this cycle and how things happen. We're interested in looking at when do I see it and how can I change it? We're not interested in being able to change our childhood.
+That gets the adrenaline system ready for fight or flight, and they're readying it is the freeze. And so these are all neurological things that happen within the body, and yet very few people are aware of this system, and they're not even aware of the anxiety that they've created. So this is where Annapanasati comes in is because we're actually not just interested in this cycle and how things happen. We're interested in looking at when do I see it and how can I change it? We're not interested in being able to change our childhood.
 
 You can't change the past. But what we can do is begin to interrupt the cycles that we have created from the past. So, Thomas, you got your hand up?
 
@@ -116,7 +116,7 @@ The Buddha didn't know any of that stuff, because it's really not important to t
 
 I mean, the Buddha didn't have a knife. He didn't cut his brain open to see what was in there. We've done that in recent times. But knowing all of that is of no value. Just like Freud, he knew about the superego and the id, and Byrne knew exactly what was going on between the parent ego state.
 
-And we also, the neurology knows exactly what part of the mind that that stuff is happening in. It's either happening in the back, which is where all the feelings are, which is what we call the child, and also the verbal dialogue and all of that stuff that happens, which is in the mid brain, the cork, the temporal lobes, or the mammalian brain. The Buddha didn't need any of that because he was much more concerned with how do we wind up in bad feelings? And the reality is, is that there is a part of the reptilian brain, the ancient brain called the cerebellum, that has a whole lot to do with this, because this is where memories are stored. And this is what the Buddha talks about in the sense of Sankara.
+And we also, the neurology knows exactly what part of the mind that that stuff is happening in. It's either happening in the back, which is where all the feelings are, which is what we call the child, and also the verbal dialogue and all of that stuff that happens, which is in the mid brain, the cork, the temporal lobes, or the mammalian brain. The Buddha didn't need any of that because he was much more concerned with how do we wind up in bad feelings? And the reality is, is that there is a part of the reptilian brain, the ancient brain called the cerebellum, that has a whole lot to do with this, because this is where memories are stored. And this is what the Buddha talks about in the sense of Sanghara.
 
 All the stuff that we've got stored is then used in the processing for us to figure out how we're going to feel. Is this pleasant? Is it unpleasant? Is this a good thing or a bad thing? Is this dangerous?
 
@@ -444,7 +444,7 @@ Well, thank you all. Anybody got any last words?
 
 Everybody's good. Okay.
 
-Thank you. I really appreciate you guys coming. So we'll see you later. See you, Lamato. Thank you, Damarado.
+Thank you. I really appreciate you guys coming. So we'll see you later. See you, Lamato. Thank you, Dhammarato.
 
 Thank you. Thank you all. Bonjour. Bonjour. Thank you.
 

@@ -46,7 +46,7 @@ Okay? And work and samatha are exactly opposites. The right way to find the sama
 
 Now, by the way, these four words, safe, secure, comfortable, and satisfied, are part of the lexicon for the word sukha. And, you know, the sukha is in the Anapanasati sutta. To develop it as a skill. Thus, one trains oneself while breathing in long and breathing out long. One trains the mind into sukkha, which means that we find fear in the mind.
 
-We take the fear out so that we become not necessarily fearless, but rather feeling safe and secure. Also, a lot of the meditation practices in the west have to do with people sitting for a long time, and they become uncomfortable. But the whole point about Annapanisati is to bring the mind, to bring the body into a state of comfort so it can relax. But when people from the west are sitting for long periods of time, their body gets more tense, not more relaxed. Yeah.
+We take the fear out so that we become not necessarily fearless, but rather feeling safe and secure. Also, a lot of the meditation practices in the west have to do with people sitting for a long time, and they become uncomfortable. But the whole point about Annapanasati is to bring the mind, to bring the body into a state of comfort so it can relax. But when people from the west are sitting for long periods of time, their body gets more tense, not more relaxed. Yeah.
 
 I appreciate that emphasis in your teaching that I've heard many times, and I. Do you mind if I jump in for a moment? Go right ahead. Yep. Yeah.
 
@@ -66,7 +66,7 @@ That's only a concept in your own mind, that, in fact, the only beings that you 
 
 There's your second noble truth right there. So, most of the practice of metta is, in fact, creating dukkha, not eliminating it. Only when metta is done correctly is, in the sense of gladdening the mind. Wow, this feels good. Well, I feel safe.
 
-I feel secure. I feel comfortable. I feel satisfied, because satisfaction is the key ingredient for the sukha, and sukkah is exactly opposite of dukkha. So sukkah is the place that the Buddha is talking about when he says, dukkha naroda is to come to a state of satisfaction. Everything's okay.
+I feel secure. I feel comfortable. I feel satisfied, because satisfaction is the key ingredient for the sukha, and sukkah is exactly opposite of dukkha. So sukkah is the place that the Buddha is talking about when he says, dukkha Nirodha is to come to a state of satisfaction. Everything's okay.
 
 Everything is fine. Not a worry in the world. Is that right, Colin? Not a worry in the world. Everything is already okay.
 
@@ -94,13 +94,13 @@ This is the three steps of the Eightfold noble path. This is, in fact, the ponya
 
 Okay, so it's sama area, panya, arditi sama area, sati and sama area. Viria. We have to make a change over and over and over again. We have to see what we're doing and make a change to it. When we do that, the way that we're making a change is when anapana satisuta talks about gladdening the mind, brightening the mind, begin to change your attitude over and over and over again.
 
-And when you begin to change your attitude over and over again, this is what's adding the fourth item on the Eightfold noble path. And that fourth item is called sama sankapa. Now, Sama Sankapa also has a twin brother called Shraddha or sada. And Sarah does not translate to faith. It translates better to confidence that I know that I can do this, I know that I can practice over and over again and clean my mind out.
+And when you begin to change your attitude over and over again, this is what's adding the fourth item on the Eightfold noble path. And that fourth item is called sama Sanghapa. Now, Sama Sanghapa also has a twin brother called Shraddha or sada. And Sarah does not translate to faith. It translates better to confidence that I know that I can do this, I know that I can practice over and over again and clean my mind out.
 
 And then in sutta number 48, the buddha makes the point that no matter how hindered the mind, no matter how much unwholesome stuff or what obstructions there are, the student knows. He knows that he can clean that stuff out and come to reality, to come back to the way things actually are. Now, this is called the first knowledge, and that first knowledge is noble. That first knowledge is supra mundane or locata. It's above the world.
 
 It's super mundane. It is noble, and it is not held by your masses of people. It's not held by ordinary people. Ordinary people are still stuck at Siva samādhipanya, and here we are transferring into pNA samādhi sila. Okay, this is, in fact, what really unifies and organizes the mind is when we have that confidence to come out of our hindrances by being able to see them, no matter how much you obstructed the mind gets.
 
-I can see that, and I can come right out of it. All right? And so with that SAMa SANkA, that's where the right unification of mind comes in. The samādhi mind is a mind that is whole, a mind that is, let us say, confident to keep making the changes into the wholesome over and over and over again. And as the mind is made whole that way, like the clock that I was giving the example of, okay, that is clean now, we've cleaned our clock, we've taken all the junk out of it, and anytime a speck of dust comes into that clock, we catch it, and we keep it, the mind clean.
+I can see that, and I can come right out of it. All right? And so with that SAMa Sangha, that's where the right unification of mind comes in. The samādhi mind is a mind that is whole, a mind that is, let us say, confident to keep making the changes into the wholesome over and over and over again. And as the mind is made whole that way, like the clock that I was giving the example of, okay, that is clean now, we've cleaned our clock, we've taken all the junk out of it, and anytime a speck of dust comes into that clock, we catch it, and we keep it, the mind clean.
 
 We keep the clockwork functioning correctly. Okay? So when the mind is a samādhi mind, that means that we're free from hindrances, which another way of saying it, you don't want anything, you're okay the way you are. You're safe, secure, comfortable, and satisfied. Over and over again.
 
@@ -132,7 +132,7 @@ This is why Selah starts. Now. Here's an important point, and that is that when 
 
 Oh, he's been a good boy for five years now. Okay. Rather than what is your mind state right now? Yeah. Yes, is perfect right now, because you don't want anything right now.
 
-This is why we talk about the whole teaching of the Buddha is dukha, dukkha Naroda. Come out of your dukkha into Dukkha Naroda, or into a state of sukkha right now. You don't have to practice it hopingly someday that you'll be enlightened, because you're enlightened right now when you're free from Dukkha. So this is what we're practicing. We're not practicing to become enlightened.
+This is why we talk about the whole teaching of the Buddha is dukha, dukkha Nirodha. Come out of your dukkha into Dukkha Nirodha, or into a state of sukkha right now. You don't have to practice it hopingly someday that you'll be enlightened, because you're enlightened right now when you're free from Dukkha. So this is what we're practicing. We're not practicing to become enlightened.
 
 We're practicing being enlightened.
 
@@ -190,7 +190,7 @@ But it takes practice over and over and over again to keep looking. Examine ever
 
 Lighten your load.
 
-See what you're doing and put it down. That's all the teaching is. That's where the Duke of Naroda comes from, is because we can set that stuff down.
+See what you're doing and put it down. That's all the teaching is. That's where the Duke of Nirodha comes from, is because we can set that stuff down.
 
 Yeah. Sometimes it's hard to see the seeing part, the seeing it. That's why we have to keep looking and keep looking and not come to a conclusion. Oh, it's okay that I carry this. It's only 150 pounds.
 
@@ -250,7 +250,7 @@ Because the mind will wander away from breath. Can you bring it back happily? Ye
 
 Here we go. That's okay. Good job. Well done. Yeah, yeah.
 
-Okay. The other thing in my mind there, Damarado, is if I then become attached to only having a long breath. Is that an issue that my practice only works if I have a long breath that I can focus on? Actually, we can talk about it like this, that I've had students who come in and say, oh, I get so tired. Oh, yeah, I get tired when I'm doing the long breath.
+Okay. The other thing in my mind there, Dhammarato, is if I then become attached to only having a long breath. Is that an issue that my practice only works if I have a long breath that I can focus on? Actually, we can talk about it like this, that I've had students who come in and say, oh, I get so tired. Oh, yeah, I get tired when I'm doing the long breath.
 
 That means that they actually are attached to it. That's why they're getting tired. Remember that the long breath is to be relaxed and people get attached to it. And then it's a work. They're supposed to do it rather than happily coming back when they've forgotten about it.
 

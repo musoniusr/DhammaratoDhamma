@@ -340,7 +340,7 @@ Does anybody have any last remarks?
 
 All right, you guys have had enough too. Great. Enough of this.
 
-Enough already. Thank you, Damarado. Thank you everyone.
+Enough already. Thank you, Dhammarato. Thank you everyone.
 
 ### Youtube Video
 
