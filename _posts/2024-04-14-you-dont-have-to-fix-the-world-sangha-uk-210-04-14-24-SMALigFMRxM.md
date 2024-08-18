@@ -272,7 +272,7 @@ And it always ties back to a sense of safety in the case that. But for this situ
 
 Okay, you're giving me too much, and it's hard to hear. You're a little bit muffled. Michael, can you give me a short version of what he just said?
 
-If I could, I could maybe just comment on it for you. Domarado. The news that's worthwhile paying attention to is what's new right now. What's happening right now in your vicinity. In your vicinity part not on the news broadcast, because that's been filtered by people who have an agenda.
+If I could, I could maybe just comment on it for you. Dhammarato. The news that's worthwhile paying attention to is what's new right now. What's happening right now in your vicinity. In your vicinity part not on the news broadcast, because that's been filtered by people who have an agenda.
 
 Use your own mind.
 

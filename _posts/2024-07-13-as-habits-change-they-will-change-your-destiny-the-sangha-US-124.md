@@ -60,45 +60,75 @@ That that's what the second noble truth really is all about. You could say, in f
 
 And so the whole society raises one generation after another to be stupid and to want things on the outside to where the reality is is that everything that you actually need, you don't need those things. You want them. And sometimes you want them so badly because you're under the delusion that you'll be happy if you get what you want.
 
-But you can stumb come out of that immediately, right now and be happy. Can you do that, Mickey? Can you just put a big smile and say, yeah, I'm happy. I can do that, Damodos, can you do that? Can you just say, yeah, right now, I'm okay, I'm happy.
+But you can come out of that immediately, right now and be happy. Can you do that, Mickey? Can you just put a big smile and say, yeah, I'm happy. 
 
-This is good enough? Definitely, yes. How about you, Alexandra? Can you just be happy right now?
+I can do that
 
-Absolutely. All right. So, Jordan, let me ask you, can you just be happy right now?
+Damadas, can you do that? Can you just say, yeah, right now, I'm okay, I'm happy.
 
-Uh, I can not be unhappy. I don't really feel happy right now, though. All right. Do you recognize that that's your choice? Yes, I do realize that's my choice.
+This is good enough? Definitely, yes. 
 
-All right. Choosing to be happy seems like a hard decision to commit to right now. Well, that's because you haven't been doing it. An input. When it takes its first step, it's shaky.
+How about you, Alexandra? Can you just be happy right now?
+
+Absolutely. 
+
+All right. So, Jordan, let me ask you, can you just be happy right now?
+
+Uh, I can not be unhappy. I don't really feel happy right now, though. 
+
+
+All right. Do you recognize that that's your choice? 
+
+Yes, I do realize that's my choice.
+
+All right. 
+
+Choosing to be happy seems like a hard decision to commit to right now. 
+
+
+Well, that's because you haven't been doing it. An input. When it takes its first step, it's shaky.
 
 It falls down because it's not used to walking, and so you're unsure of yourself. You've been crawling around your whole life. It's time to stand up.
 
-Hey, Robert. Glad to see you. Hey, Dom Arado. How's it going? Good.
+Hey, Robert. Glad to see you. Hey, Dhammarato. 
+
+How's it going? Good.
 
 Great to see you. I'm so glad. I didn't know it was going anywhere. I thought it was just sitting here being happy. That's exactly what you're doing.
 
 Oh, I'm here with my friend Sarah. Say hi. Hi. Hi.
 
-She loves the dhamma. She actually practices Buddhism, and she's practiced for years. Okay, well, I'm glad that you've joined the call, and we'll continue on. In fact, what I can say is that just recently, I've been talking about the third noble truth. Now, normally in Buddhism, the third noble truth is the one that nobody talks about.
+She loves the dhamma. She actually practices Buddhism, and she's practiced for years. 
 
-You're not supposed to get the results so quickly. You're supposed to wait for years, meditate your heart out, spend 50,000, 100,000 hours sitting on the floor, squatting and contemplating and meditating and all of that. And then somehow, something is going to happen. Like the common machine out of the sky is going to come down and do some ooby doobie Gobby Gobby and shake some water on you, and then you're going to feel good. And the fact is, is that 100,000 hours or so, the meditator has been wasting his time because he could have been happy every time he remembered to be happy.
+Okay, well, I'm glad that you've joined the call, and we'll continue on. 
+
+In fact, what I can say is that just recently, I've been talking about the third noble truth. Now, normally in Buddhism, the third noble truth is the one that nobody talks about.
+
+You're not supposed to get the results so quickly. You're supposed to wait for years, meditate your heart out, spend 50,000, 100,000 hours sitting on the floor, squatting and contemplating and meditating and all of that. And then somehow, something is going to happen. Like the kamma machine out of the sky is going to come down and do some ooby doobie Gobby Gobby and shake some water on you, and then you're going to feel good. And the fact is, is that 100,000 hours or so, the meditator has been wasting his time because he could have been happy every time he remembered to be happy.
 
 And so that, in fact, you mentioned the word mindfulness. That's what the word mindfulness is, badly translated from the pali word sati. And the word sati means to remember that right now you have a choice to remember to wake up and to be here now to be in reality, as opposed to being in some dream state, creating our realities, daydreaming, wanting things we don't have, thinking about the past, thinking about the future, and being generally dissatisfied. And when we have Sati, that means that we can wake up right here, right now, and see that we're doing that kind of stuff and make a change to it so that you can be happy right now, you can be satisfied right now. And that, um, this is the third noble truth is that it's available to you right here, right now, and it's available to you the next right now, and then it's available to you for the next right now.
 
-That in fact, that's all we have as a right now. How many of you really have a future?
+That in fact, that's all we have as a right now. 
+
+How many of you really have a future?
 
 Is not your future just a daydream?
 
-How about a past? Anybody here got a past? When we're thinking about the past, is that not also just a daydream? That really all we really have is right here, right now. And you wake up and see what reality is, the reality on the outside and reality on the inside.
+How about a past? 
+
+Anybody here got a past? When we're thinking about the past, is that not also just a daydream? T
+
+hat really all we really have is right here, right now. And you wake up and see what reality is, the reality on the outside and reality on the inside.
 
 And when you have a choice about the reality on the inside, then you would naturally choose to be satisfied.
 
-Does anybody here choose consciously, willingly to be disappointed and satisfied?
+Does anybody here choose consciously, willingly to be disappointed and dis-satisfied?
 
 No. If we're awake, if we're able to see what's going on right now, the choice that we would make would be to be safe and secure and comfortable and satisfied right here, right now. So this leads us then to the fourth noble truth. Now, this point about Dukkha Duka Nirodha, or dissatisfaction versus satisfaction, that's the basic teaching. But the Buddha unpacks that into four noble truths.
 
-The first one is that dissatisfaction exists. You made it up. It's not that life itself is unsatisfactory because there's no one here who would say, yeah, you're right, life itself is unsatisfying. Let's just kill ourselves right now. Nobody's willing to do that.
+The first one is that dissatisfaction exists. You made it up. It's not that life itself is unsatisfactory because there's no one here who would say, "yeah, you're right, life itself is unsatisfying. Let's just kill ourselves right now." 
 
-Everybody wants to live. Everybody has a life force. But that life force also can be called the self preservation instinct. And that self preservation instinct, or life force, when handled ignorantly, creates dissatisfaction. But when you handle that life force correctly, wisely, mindfully, we can actually guide it and change it so that we have a life that's not just worth living, but it is marvelous.
+Nobody's willing to do that. Everybody wants to live. Everybody has a life force. But that life force also can be called the self preservation instinct. And that self preservation instinct, or life force, when handled ignorantly, creates dissatisfaction. But when you handle that life force correctly, wisely, mindfully, we can actually guide it and change it so that we have a life that's not just worth living, but it is marvelous.
 
 So there is a method to do that. That's the fourth noble truth. There is a method. And that method they call the Eightfold path. Some people call it the Eightfold noble path.
 
@@ -110,27 +140,30 @@ It's not a means to an end. It's the result of having a mind that is noble. And 
 
 You live in a made up dream world that you were taught.
 
-So we basically then start with three items. One is ditty, to look to see what's going on. And in order to do that, we have to remember to look to see what kind of thoughts that we're having. And once we can see those thoughts, see what we're doing, then we can make a change for the better.
+So we basically then start with three items. One is piti, to look to see what's going on. And in order to do that, we have to remember to look to see what kind of thoughts that we're having. And once we can see those thoughts, see what we're doing, then we can make a change for the better.
 
-So if you have anxiety, a lot of people will come and say, oh, I've been meditating, and I find this anxiety. And my answer to that would be, is that anxiety new or old? And everybody will say, oh, it's old. I just haven't been paying attention to it. It's been driving my life that we get up and go to work with anxiety.
+So if you have anxiety, a lot of people will come and say, "oh, I've been meditating, and I find this anxiety." And my answer to that would be, is that anxiety new or old? And everybody will say, "oh, it's old. I just haven't been paying attention to it. It's been driving my life that we get up and go to work with anxiety."
 
 We go out to eat with anxiety. We go to the movies with anxiety. The anxiety drives us. But when I'm sitting, just doing nothing, sitting in what you would call meditation, then the anxiety is there. And now we recognize we can't do anything about it with the skill levels that we have.
 
-But the reality is that you do have the skills, if you'll practice them, to come out of that anxiety by taking a deep breath and recognizing that, oh, I can have thoughts that don't create anxiety, that I can have thoughts instead of right now. Everything is safe. There's no alligators in the room. There is no mod squad. There is no SWAT team.
+But the reality is that you do have the skills, if you'll practice them, to come out of that anxiety by taking a deep breath and recognizing that, "oh, I can have thoughts that don't create anxiety, that I can have thoughts instead of right now. Everything is safe. There's no alligators in the room. There is no mod squad. There is no SWAT team. There are no cops knocking on the door. There's nothing here right now. Why do I have anxiety?" The answer to that is, is because we are in the habit of it. So we can begin to change those habits and tell ourselves instead, "everything is okay.Everything is fine."
 
-There are no cops knocking on the door. There's nothing here right now. Why do I have anxiety? The answer to that is, is because we are in the habit of it. So we can begin to change those habits and tell ourselves instead, everything is okay.
+ We can start having some noble, happy thoughts. And so this is the real key then, if we could say it this way, is to start looking at what you're thinking and make a big change to it and start having the kinds of thoughts that are worthwhile, that are wholesome. 
+ 
+ Everything's all right. 
+ Everything's okay.
+No hurry, no worry, no problems. 
+Everything is going to take care of itself. 
+Just one more breath. 
+Just one more. 
 
-Everything is fine. We can start having some noble, happy thoughts. And so this is the real key then, if we could say it this way, is to start looking at what you're thinking and make a big change to it and start having the kinds of thoughts that are worthwhile, that are wholesome. Everything's all right. Everything's okay.
-
-No hurry, no worry, no problems. Everything is going to take care of itself. Just one more breath. Just one more. That's all we need to do.
+That's all we need to do.
 
 And so these are the three points of the eight vulnerable path that's so important. This is how we start, is we remember to take a look at what we're doing and then make a change to it. If we do that over and over and over and over again, we begin to change our attitude. That attitude, by the way, in the pali, is called sama Sanghapa. It also has the word shraddha or sadha, which means confidence.
 
-Do you have the confidence that you could take this next breath happily no matter what happens? Well, the way to handle that is by getting away from everything, getting away from the alligators and the snakes, getting away from the cops, getting away from society, coming back to a place in seclusion where it's very easy to recognize that you are saved, to see that you're safe, to recognize that you're safe, to recognize that you're okay. Right now, this is how we practice over and over and over again. And when we begin to get the confidence that I can handle seclusion, then we begin to say, okay, I can handle seclusion. Let me go handle a little bit of the world.
+Do you have the confidence that you could take this next breath happily no matter what happens? Well, the way to handle that is by getting away from everything, getting away from the alligators and the snakes, getting away from the cops, getting away from society, coming back to a place in seclusion where it's very easy to recognize that you are saved, to see that you're safe, to recognize that you're safe, to recognize that you're okay. Right now, this is how we practice over and over and over again. And when we begin to get the confidence that I can handle seclusion, then we begin to say, "okay, I can handle seclusion. Let me go handle a little bit of the world." "Let me go handle some of those people who are not happy. Let me bring my happiness to them. Give them a great big smile, maybe give them a great big hug and be happy."  
 
-Let me go handle some of those people who are not happy. Let me bring my happiness to them. Give them a great big smile, maybe give them a great big hug and be happy. This is what we have to practice over and over and over and over again because we've already built up the practice, built up the habit of being like everybody else. In fact, that's what girls in high school want.
-
-They want to be able to fit in. I don't know why, but they want to fit in with the crowd. Seems to me that the moms and dads could teach those girls, you don't want to fit in. What you want to be is happy. If you're happy, you don't have to fit in.
+This is what we have to practice over and over and over and over again because we've already built up the practice, built up the habit of being like everybody else. In fact, that's what girls in high school want. They want to be able to fit in. I don't know why, but they want to fit in with the crowd. Seems to me that the moms and dads could teach those girls, you don't want to fit in. What you want to be is happy. If you're happy, you don't have to fit in.
 
 You don't have to be like everybody else. And in fact, the reality is, is that all of those people, everybody else they want what you've got. What is that? Happiness, a smile, contentment, satisfaction. And so this is what we practice over and over and over again.
 
@@ -272,7 +305,7 @@ And that's why students never go anywhere. It's because they want to know first.
 
 Like in practice, it's kind of like a bicycle trip. Interesting. You think you're going someplace, but the reality is you don't know where you're going. But if you don't get on that bicycle, if you sit and plan and map and look and figure it out and go on the Internet, you'll get nowhere. You got to actually get on that bicycle and start pedaling, and then you don't know where you're going to wind up.
 
-In fact, there's an old Nasrudine joke, Moolah Nasrogene, just a book of an islamic joke book that I ran across when I was in India. And in one of the stories, Mullah Nasruddin, at 12:00 every day, got up out of his office chair and went over to the mosque day after day after day. And right across the square was the police station. And the cop saw him do this day after day after day. And he went up to the moon and says, where are you going?
+In fact, there's an old Nasrudine joke, Mullah Nassrudin, just a book of an islamic joke book that I ran across when I was in India. And in one of the stories, Mullah Nasruddin, at 12:00 every day, got up out of his office chair and went over to the mosque day after day after day. And right across the square was the police station. And the cop saw him do this day after day after day. And he went up to the moon and says, where are you going?
 
 Mulan asked her, Dean. And the muller says, I don't know. And he pissed off that cop. That cop got really angry. You know where you're going?
 
