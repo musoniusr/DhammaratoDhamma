@@ -12,7 +12,7 @@ hidden: true
 toc: true
 ---
 
-# Veggies, Jhana and Dark Nights The Sangha UK 222 06 09 24
+# Veggies Jhana and Dark Nights The Sangha UK 222 06 09 24
 
 ### Video
 
