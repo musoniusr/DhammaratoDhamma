@@ -12,8 +12,6 @@ hidden: true
 toc: true
 ---
 
-
-
 ### Video
 
 
@@ -176,6 +174,10 @@ toc: true
 **Speaker B:** Have a good one, y'all. And if you haven't yet, check out the survey for the OpenSonga Foundation.org website. We have a survey, we're looking for bugs, looking for recommendations on what to do with the site, just making sure that it's working well. So, yeah, please go ahead, check out our survey and fill it out.
 
 **Dhammarato:** Yes. If you haven't signed up for the website, please do check it out. Wow. It's got so much stuff. It's got video, it's got huge amounts of audio, it's got books, it's got PDF files. I think one thing is we got all the Bikin Buddha Das PDFs, but the main part of it is the search because we have thousands and thousands of places and you can go look for where you live. And we've also got a map of all of those places or most of them, so that you can go and get all kinds of information by just honing in on the map. So please go check it out, slice it and dice it and see if you can break it. Because we're just about ready to launch. When I say launch, that means we're going to send out thousands of emails as a newsletter. And then, in fact, I could use some help on writing a newsletter. What should we say in our first newsletter? So anybody got any thoughts about that? Let's hear them. Okay, guys, thank you very much. This has been a long call, but it's been happy. We'll see you later.
+
+### Overview of This Dhamma Talk
+
+In this wide-ranging talk, Dhammarato discusses three main topics: vegetarianism in Buddhism (eat what's given without making rules), the nature of jhanas (first jhana is sufficient, higher jhanas were pre-Buddhist practices), and the problematic nature of the 16 stages of insight and dark night concepts. He emphasizes practical, direct practice over complex systems and rules, encouraging students to catch and change unwholesome thoughts quickly rather than wallowing in them. The key message is that simple, direct practice focusing on the Noble Eightfold Path is more effective than elaborate systems or strict rules.
 
 
 ### Participate in one of our Live Sanghas (Free of Charge)
