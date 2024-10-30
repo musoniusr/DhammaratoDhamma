@@ -259,7 +259,7 @@ Move from dissatisfaction (dukkha) to satisfaction (sukha)
 Practice one by one as things occur
 No need for different methods or techniques
 
-### Participate in one of our Live Sanghas (Free of Charge) c
+### Participate in one of our Live Sanghas (Free of Charge)
 
 <p>►The Sangha US, Friday 7 PM PDT <a href="https://join.skype.com/uyYzUwJ3e3TO">Join Skype Call</a>.</p>
 
