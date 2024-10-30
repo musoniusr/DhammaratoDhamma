@@ -5,8 +5,8 @@ author: Dhammarato
 categories:
   - Daily Dhammaarato
 image: assets/images/transforming-reality.png
-featured: true
-hidden: true
+featured: false
+hidden: false
 toc: true
 ---
 

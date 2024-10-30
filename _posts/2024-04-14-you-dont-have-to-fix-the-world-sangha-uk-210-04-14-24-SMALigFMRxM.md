@@ -6,8 +6,8 @@ categories: [ transcripts, Sangha UK ]
 tags: [transcripts, sangha-us]
 image: "https://i.ytimg.com/vi/SMALigFMRxM/maxresdefault.jpg"
 description: "Transcript of April 14 Sangha UK Talk with Dhammarato and Friends"
-featured: true
-hidden: true
+featured: false
+hidden: false
 toc: true
 ---
 

@@ -6,8 +6,8 @@ categories: [ transcripts, Sangha ]
 tags: [transcripts, sangha-us]
 image: assets/images/awakening_from_victim_mindset.png"
 description: "Transcript of May 10, 2024 Sangha US Talk with Dhammarato and Friends"
-featured: true
-hidden: true
+featured: false
+hidden: false
 toc: true
 ---
 

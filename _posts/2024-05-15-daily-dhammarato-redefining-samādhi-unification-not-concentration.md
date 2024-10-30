@@ -5,8 +5,8 @@ author: Dhammarato
 categories:
   - Daily Dhammaarato
 image: assets/images/orange-juice.jpg
-featured: true
-hidden: true
+featured: false
+hidden: false
 toc: true
 modified: 2024-05-13T10:02:44-04:00
 ---

@@ -6,8 +6,8 @@ categories: [ transcripts, Sangha ]
 tags: [transcripts, sangha-us]
 image: "https://i.ytimg.com/vi/yTvtKlT5SrA/maxresdefault.jpg"
 description: "Transcript of June 8, 2024 Sangha US Talk with Dhammarato and Friends"
-featured: true
-hidden: true
+featured: false
+hidden: false
 toc: true
 ---
 
