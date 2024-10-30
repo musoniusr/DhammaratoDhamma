@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Simple Practice Matthew 2 09 29 24"
-author: Dhammarato Dhamma
+author: Dhammarato
 categories: [transcripts, Sangha UK]
 tags: [transcripts, sangha-us]
 image: "https://i.ytimg.com/vi/G9Cuduahyb4/maxresdefault.jpg"
