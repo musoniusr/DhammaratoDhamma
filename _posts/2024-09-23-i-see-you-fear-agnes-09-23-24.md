@@ -3,7 +3,7 @@ layout: post
 title: "I See You Fear Agnes 09 23 24"
 author: Dhammarato
 categories: [transcripts, One on One Talk]
-tags: [transcripts]
+tags: [transcripts, therigatha, buddhist teaching, dhammarato, fear, mindfulness, buddhism, meditation, dhamma talk, buddhist nun, mara, mental freedom, personal transformation, spiritual growth, buddhist wisdom, anger management, inner peace, self mastery, enlightenment, buddhist poetry, spiritual practice, dharma, meditation teaching, wisdom teachings]
 image: "https://i.ytimg.com/vi/qXOs0crbheY/maxresdefault.jpg"
 description: "Transcript of September 23, 2024 One on One Talk with Dhammarato and Friends"
 dateoftalk: 2024-09-23
