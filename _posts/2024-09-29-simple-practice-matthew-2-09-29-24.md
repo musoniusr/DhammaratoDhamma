@@ -2,8 +2,8 @@
 layout: post
 title: "Simple Practice Matthew 2 09 29 24"
 author: Dhammarato
-categories: [transcripts, Sangha UK]
-tags: [transcripts, sangha-us]
+categories: [transcripts, One on One Talk]
+tags: [transcripts]
 image: "https://i.ytimg.com/vi/G9Cuduahyb4/maxresdefault.jpg"
 description: "Transcript of September 29, 2024 Sangha US Talk with Dhammarato and Friends"
 dateoftalk: 2024-09-29
@@ -220,44 +220,44 @@ toc: true
 
 #### Developing the Skill of Remembering (Sati)
 
-Small remembering vs big remembering
-Focus on present moment, not past
-Future thoughts are just modified past thoughts
-Practice over and over again
+- Small remembering vs big remembering
+- Focus on present moment, not past
+- Future thoughts are just modified past thoughts
+- Practice over and over again
 
 
 #### Active Engagement in Practice
 
-Passively watching breath allows mind to wander
-Active engagement requires continuous remembering
-Practice with long breaths requires remembering twice per cycle
-Don't let practice become "natural" - stay engaged
+- Passively watching breath allows mind to wander
+- Active engagement requires continuous remembering
+- Practice with long breaths requires remembering twice per cycle
+- Don't let practice become "natural" - stay engaged
 
 
 #### Winner's vs Victim's Attitude
 
-Victim always sees problems and wants things different
-Winner sees everything as okay as it is
-Move from unwholesome to wholesome thoughts
-Move from victim to winner position
-Eventually move from winner to "nothing"
+- Victim always sees problems and wants things different
+- Winner sees everything as okay as it is
+- Move from unwholesome to wholesome thoughts
+- Move from victim to winner position
+- Eventually move from winner to "nothing"
 
 
 #### Right Noble Effort
 
-Use least amount of work needed to get job done
-Don't give up too quickly
-"Try" is a victim's word - remove it from vocabulary
-Practice changing unwholesome thoughts to wholesome ones
+- Use least amount of work needed to get job done
+- Don't give up too quickly
+- "Try" is a victim's word - remove it from vocabulary
+- Practice changing unwholesome thoughts to wholesome ones
 
 
 #### One Practice, One Method
 
-Only one practice that Buddha taught
-Change thoughts, feelings, attitude, posture, breathing
-Move from dissatisfaction (dukkha) to satisfaction (sukha)
-Practice one by one as things occur
-No need for different methods or techniques
+- Only one practice that Buddha taught
+- Change thoughts, feelings, attitude, posture, breathing
+- Move from dissatisfaction (dukkha) to satisfaction (sukha)
+- Practice one by one as things occur
+- No need for different methods or techniques
 
 ### Participate in one of our Live Sanghas (Free of Charge)
 
