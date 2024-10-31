@@ -1,9 +1,9 @@
 ---
 layout: post
 title: "Stop Being Dissatisfied Dukkha Sukkha Satisfaction"
-author: Dhammarato Dhamma
-categories: [transcripts, Sangha UK]
-tags: [transcripts, sangha-us]
+author: Dhammarato
+categories: [transcripts, shorts]
+tags: [transcripts, shorts]
 image: "https://i.ytimg.com/vi/LS3fIbrSpr4/maxresdefault.jpg"
 description: "Transcript of September 11, 2024 Sangha US Talk with Dhammarato and Friends"
 dateoftalk: 2024-09-11
@@ -23,7 +23,7 @@ toc: true
 ### Transcript
 
 
-**Speaker A:** Now, sukha is actually the exact opposite of dukkha. And in the Anapanasati sutta, what we're saying is that if you can get yourself into a state of sukha, which is a state of satisfaction, then in that moment you have fulfilled the entire teachings of the Buddha, which is dukkha, Dukkha naroda. So sukha means to be satisfied, because all that we're interested in doing is to stop being dissatisfied.
+**Dhammarato:** Now, sukha is actually the exact opposite of dukkha. And in the Anapanasati sutta, what we're saying is that if you can get yourself into a state of sukha, which is a state of satisfaction, then in that moment you have fulfilled the entire teachings of the Buddha, which is dukkha, Dukkha naroda. So sukha means to be satisfied, because all that we're interested in doing is to stop being dissatisfied.
 
 
 ### Summary of this Dhamma Talk
