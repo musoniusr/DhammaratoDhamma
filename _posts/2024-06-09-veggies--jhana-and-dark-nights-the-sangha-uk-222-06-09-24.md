@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Veggies, Jhana and Dark Nights The Sangha UK 222 06 09 24"
-author: Dhammarato Dhamma
+author: Dhammarato
 categories: [transcripts, Sangha UK]
 tags: [transcripts, sangha-uk]
 image: "https://i.ytimg.com/vi/5m7RnyKvBrI/maxresdefault.jpg"
