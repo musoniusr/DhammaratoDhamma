@@ -12,7 +12,7 @@ hidden: false
 toc: true
 ---
 
-## Guru Viking Ep241 Meditation Myths Dhammarato -test
+## Guru Viking Ep241 Meditation Myths Dhammarato
 
 ### Video
 
