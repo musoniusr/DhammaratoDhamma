@@ -45,7 +45,7 @@ toc: true
 
 **Agnes:** Yeah.
 
-**Dhammarato:** Okay. She's a theory for sure. This is theory, language. This is the lion's war. This woman is giving out. Okay?
+**Dhammarato:** Okay. She's a theri for sure. This is theri, language. This is the lion's roar this woman is giving out. Okay?
 
 **Agnes:** So I am freed from every kind of bondage.
 
