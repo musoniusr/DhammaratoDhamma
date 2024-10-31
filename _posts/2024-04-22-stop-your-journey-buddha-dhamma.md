@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Stop Your Journey Buddha Dhamma"
-author: Dhammarato Dhamma
+author: Dhammarato
 categories: [transcripts, Sangha UK]
 tags: [transcripts, sangha-us]
 image: "https://i.ytimg.com/vi/Zr4ozSG7BSc/maxresdefault.jpg"
