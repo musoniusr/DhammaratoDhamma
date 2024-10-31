@@ -23,7 +23,7 @@ toc: true
 ### Transcript
 
 
-**Dhammarato:** Okay, so first, first off, you're reading out of the Terry Geetha.
+**Dhammarato:** Okay, so first, first off, you're reading out of the Therigatha.
 
 **Agnes:** Yeah.
 
