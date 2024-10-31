@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Feelings are Conditioned dhamma buddhadasa"
-author: Dhammarato Dhamma
+author: Dhammarato
 categories: [transcripts, Sangha UK]
 tags: [transcripts, sangha-us]
 image: "https://i.ytimg.com/vi/x6YnaS9zfvY/maxresdefault.jpg"
