@@ -5,7 +5,7 @@ author: Dhammarato
 categories: [transcripts, One on One Talk]
 tags: [transcripts]
 image: "https://i.ytimg.com/vi/G9Cuduahyb4/maxresdefault.jpg"
-description: "Transcript of September 29, 2024 Sangha US Talk with Dhammarato and Friends"
+description: "Transcript of September 29, 2024 One on One Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-09-29
 featured: false
 hidden: false
