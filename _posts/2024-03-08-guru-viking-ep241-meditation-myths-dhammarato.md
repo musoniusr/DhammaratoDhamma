@@ -23,9 +23,9 @@ toc: true
 ### Transcript
 
 
-**Guru Viking:** In this episode, I am once again joined by Damaratto, a lineage teacher in the Thai Buddhist tradition who is known for his unique one on one teaching style. Conducted over Skype, Damaratto challenges what he sees as the widespread misconceptions about meditation practice, focusing in particular on American Buddhism and the Goenka and Mahasi methods. Damaratto discusses issues such as the dangers of meditation retreats, the problems with sleep deprivation and other austerities, and recount stories of men he has known who crippled themselves through obsessive meditation practice in damaging seated postures. Namoratto also calls for a return to the original teaching of the Buddha, advises on how to find and keep spiritual friends, and shares his perspective on how to meditate well.
+**Guru Viking:** In this episode, I am once again joined by Dhammarato, a lineage teacher in the Thai Buddhist tradition who is known for his unique one on one teaching style. Conducted over Skype, Dhammarato challenges what he sees as the widespread misconceptions about meditation practice, focusing in particular on American Buddhism and the Goenka and Mahasi methods. Dhammarato discusses issues such as the dangers of meditation retreats, the problems with sleep deprivation and other austerities, and recount stories of men he has known who crippled themselves through obsessive meditation practice in damaging seated postures. Namoratto also calls for a return to the original teaching of the Buddha, advises on how to find and keep spiritual friends, and shares his perspective on how to meditate well.
 
-**Guru Viking:** So without further ado, Damaratto. Damaratto, welcome back to the podcast.
+**Guru Viking:** So without further ado, Dhammarato. Dhammarato, welcome back to the podcast.
 
 **Dhammarato:** Yes, I'm glad to be here.
 
