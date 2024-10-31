@@ -2,7 +2,7 @@
 layout: post
 title: "Not A Religion Dhamma Buddha"
 author: Dhammarato
-categories: [transcripts, shorts
+categories: [transcripts, shorts]
 tags: [transcripts, shorts]
 image: "https://i.ytimg.com/vi/lcMcT8OnMms/maxresdefault.jpg"
 description: "Transcript of July 18, 2024 Sangha US Talk with Dhammarato and Friends"
