@@ -23,7 +23,7 @@ toc: true
 ### Transcript
 
 
-**Speaker A:** You know, the Buddha was actually big on Sunyata. He was big on nothing. Well, that's what his monks were doing. They were just sitting there doing nothing. That's the end is when you're so happy that you're doing nothing at all. You're so happy that you don't even express happiness. You're just contented with the way things are. You're chilling. So that's the path. The path is to stop being on a path because your journey is a journey to nowhere. And you recognize that your journey is a journey to nowhere. And stop your journey, because wherever you are, there you are right now, and that's good enough.
+**Dhammarato:** You know, the Buddha was actually big on Sunyata. He was big on nothing. Well, that's what his monks were doing. They were just sitting there doing nothing. That's the end is when you're so happy that you're doing nothing at all. You're so happy that you don't even express happiness. You're just contented with the way things are. You're chilling. So that's the path. The path is to stop being on a path because your journey is a journey to nowhere. And you recognize that your journey is a journey to nowhere. And stop your journey, because wherever you are, there you are right now, and that's good enough.
 
 
 ### Summary of this Dhamma Talk

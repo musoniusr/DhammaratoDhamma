@@ -1,9 +1,9 @@
 ---
 layout: post
 title: "Can You Feel Safe? Wholesome Buddha Dhamma"
-author: Dhammarato Dhamma
-categories: [transcripts, Sangha UK]
-tags: [transcripts, sangha-us]
+author: Dhammarato
+categories: [transcripts, shorts]
+tags: [transcripts, shorts]
 image: "https://i.ytimg.com/vi/ryJrDZYLoN0/maxresdefault.jpg"
 description: "Transcript of September 03, 2024 Sangha US Talk with Dhammarato and Friends"
 dateoftalk: 2024-09-03
@@ -23,7 +23,7 @@ toc: true
 ### Transcript
 
 
-**Speaker A:** Where we start with the wholesome thoughts is everything is okay. And with that, we can also use words like I feel safe and secure. Now, the reality is the room you're in right now is safe, right? The floors are not buckling. The walls are not falling in. There is no mapia boss beating on your door. There's no SWAT team. There's no alligators on the floor. All of the things that would make the room dangerous. It's not dangerous. So can you, with that actual knowledge of reality, begin to feel safe because the room itself right now is safe? Can you feel safe right now?
+**Dhammarato:** Where we start with the wholesome thoughts is everything is okay. And with that, we can also use words like I feel safe and secure. Now, the reality is the room you're in right now is safe, right? The floors are not buckling. The walls are not falling in. There is no mapia boss beating on your door. There's no SWAT team. There's no alligators on the floor. All of the things that would make the room dangerous. It's not dangerous. So can you, with that actual knowledge of reality, begin to feel safe because the room itself right now is safe? Can you feel safe right now?
 
 
 ### Summary of this Dhamma Talk

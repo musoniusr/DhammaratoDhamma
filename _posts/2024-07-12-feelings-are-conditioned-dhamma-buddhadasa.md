@@ -23,7 +23,7 @@ toc: true
 ### Transcript
 
 
-**Speaker A:** The teaching of the Buddha is neither a philosophy nor is it a religion. What it is, is a cure for what ails you right now. And what ails us right now is that we don't like things or we like them and we want them. That we really don't understand that everything that's there is there because we're unaware of how we feel about things. And that the feelings are, let us say, conditioned by the thoughts that we have. And the thoughts that we have are conditioned by our past. And so all of this conditioning is going on, leading us to that point that we are ignorant about what's really going on within the mind.
+**Dhammarato:** The teaching of the Buddha is neither a philosophy nor is it a religion. What it is, is a cure for what ails you right now. And what ails us right now is that we don't like things or we like them and we want them. That we really don't understand that everything that's there is there because we're unaware of how we feel about things. And that the feelings are, let us say, conditioned by the thoughts that we have. And the thoughts that we have are conditioned by our past. And so all of this conditioning is going on, leading us to that point that we are ignorant about what's really going on within the mind.
 
 
 ### Summary of this Dhamma Talk

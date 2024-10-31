@@ -2,8 +2,8 @@
 layout: post
 title: "The Easy Way Buddha Dhamma"
 author: Dhammarato Dhamma
-categories: [transcripts, Sangha UK]
-tags: [transcripts, sangha-us]
+categories: [transcripts, shorts]
+tags: [transcripts, shorts]
 image: "https://i.ytimg.com/vi/opqtFsX0s94/maxresdefault.jpg"
 description: "Transcript of July 13, 2024 Sangha US Talk with Dhammarato and Friends"
 dateoftalk: 2024-07-13
@@ -23,7 +23,7 @@ toc: true
 ### Transcript
 
 
-**Speaker A:** So that's the way of looking at it, is to take the easy way out. Only desire easy things that are easy to get. Like the next breath. If you want to take the next breath, go ahead. The air is there. If you want to smile, that's easy to do, just smile. But if you want to know all about Buddhism, you're going to be suffering for a long time. That even when you actually figure out the real thing about the Buddha, unless you apply it, you're going to stay in that desire to want more and more and more.
+**Dhammarato:** So that's the way of looking at it, is to take the easy way out. Only desire easy things that are easy to get. Like the next breath. If you want to take the next breath, go ahead. The air is there. If you want to smile, that's easy to do, just smile. But if you want to know all about Buddhism, you're going to be suffering for a long time. That even when you actually figure out the real thing about the Buddha, unless you apply it, you're going to stay in that desire to want more and more and more.
 
 
 ### Summary of this Dhamma Talk

@@ -1,9 +1,9 @@
 ---
 layout: post
 title: "Not A Religion Dhamma Buddha"
-author: Dhammarato Dhamma
-categories: [transcripts, Sangha UK]
-tags: [transcripts, sangha-us]
+author: Dhammarato
+categories: [transcripts, shorts
+tags: [transcripts, shorts]
 image: "https://i.ytimg.com/vi/lcMcT8OnMms/maxresdefault.jpg"
 description: "Transcript of July 18, 2024 Sangha US Talk with Dhammarato and Friends"
 dateoftalk: 2024-07-18
@@ -23,7 +23,7 @@ toc: true
 ### Transcript
 
 
-**Speaker A:** The teaching of the Buddha is neither a philosophy nor is it a religion. What it is, is a cure for what ailed you right now.
+**Dhammarato:** The teaching of the Buddha is neither a philosophy nor is it a religion. What it is, is a cure for what ailed you right now.
 
 
 ### Summary of this Dhamma Talk

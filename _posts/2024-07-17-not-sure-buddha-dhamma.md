@@ -1,9 +1,9 @@
 ---
 layout: post
 title: "Not Sure Buddha Dhamma"
-author: Dhammarato Dhamma
-categories: [transcripts, Sangha UK]
-tags: [transcripts, sangha-us]
+author: Dhammarato
+categories: [transcripts, shorts]
+tags: [transcripts, shorts]
 image: "https://i.ytimg.com/vi/aFoZmlnZIHs/maxresdefault.jpg"
 description: "Transcript of July 17, 2024 Sangha US Talk with Dhammarato and Friends"
 dateoftalk: 2024-07-17
@@ -23,7 +23,7 @@ toc: true
 ### Transcript
 
 
-**Speaker A:** Being not sure is a comfortable place. And I see a lot of students who come and want to hear about the dharma, want to know how to practice. And the hallmark is that they keep asking questions and I'll give them a little answer and I'll give them some information about how to practice, and then I'll ask another question and another question and another question. And really they are not sure and they don't like it. You have to actively throw out your questions and come to the state of not knowing. I don't know. Not sure. Who are you? I don't know. Not sure. All you have to know is it's okay that you don't know and everything is all right. The right way to live your life is to be alert, be awake, to be here now to watch what's going on and to not think that you know everything or anything at all.
+**Dhammarato:** Being not sure is a comfortable place. And I see a lot of students who come and want to hear about the dharma, want to know how to practice. And the hallmark is that they keep asking questions and I'll give them a little answer and I'll give them some information about how to practice, and then I'll ask another question and another question and another question. And really they are not sure and they don't like it. You have to actively throw out your questions and come to the state of not knowing. I don't know. Not sure. Who are you? I don't know. Not sure. All you have to know is it's okay that you don't know and everything is all right. The right way to live your life is to be alert, be awake, to be here now to watch what's going on and to not think that you know everything or anything at all.
 
 
 ### Summary of this Dhamma Talk
