@@ -225,7 +225,7 @@ Ordinary people do not have this, that absolute confidence that you can clean ou
 
 So that's the first knowledge. And that first knowledge can come when we keep practicing over and over and over again, being satisfied until that satisfaction begins to settle in. And that's your normal state. Now, that doesn't mean you're going to be free from hindrances forever. No, the hindrances are going to come back.
 
-And when they do, you can say, hot dog, I see you. I see you, mister Hindrance. I see you, Myra. That's the word that the buddha used. Aha, I see you, Marae, which is that attitude of, I can do this, I can handle that.
+And when they do, you can say, hot dog, I see you. I see you, mister Hindrance. I see you, Mara. That's the word that the buddha used. Aha, I see you, Marae, which is that attitude of, I can do this, I can handle that.
 
 I can handle Mara when Mara comes. I can handle these hindrances when they come back in the mind. No doubt about it. No questions to need to be asked about how to practice meditation. Stop asking questions about how to practice meditation and start just feeling satisfied.
 
@@ -297,7 +297,7 @@ Yeah, I've noticed. Letting him be a teacher, let him be your example. Yeah, I'v
 
 Some are really, like, when I was at Ajahn Martin, he was quite energetic. And then some other teachers, they just don't really say anything and they just don't do anything and they don't really care. But you still get, like, a wholesome sense from them. Like, it's still a pickup on. It's quite wholesome.
 
-It's not like, you know, it's not something negative or anything, but it's quite positive. It's very positive nothingness. Just nothing to it. Daniel, you also mentioned that you were worried about not making it to the meditation hall for the chanting and achan santi. Well, he doesn't care, but I don't think he even realizes that I usually don't go because I'm too lazy, so.
+It's not like, you know, it's not something negative or anything, but it's quite positive. It's very positive nothingness. Just nothing to it. Daniel, you also mentioned that you were worried about not making it to the meditation hall for the chanting and Ajahn santi. Well, he doesn't care, but I don't think he even realizes that I usually don't go because I'm too lazy, so.
 
 Well, you could go to the chanting because you love doing it. Some mornings I've had a good night of sleep, and then I'm like, oh, yeah, I can go now. I feel like, yeah, I can do that. Yeah, some mornings I really don't want to go. Yeah.
 

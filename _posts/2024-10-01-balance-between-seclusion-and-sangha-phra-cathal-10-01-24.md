@@ -87,7 +87,7 @@ toc: true
 
 **Speaker C:** Yeah.
 
-**Dhammarato:** And you're a new monk. But Achan Meti is an old hand, and so he has already gone through a lot of the stuff that you need to go through, and yet he likes to take you and whoever is there. In fact, the question that you're asking in a way, was phrased to me way back as far as 2016, about eight years ago, because friends were staying at Dam Kiem and Achan Meti was taking them to Suratane, taking them to all the little schools and up the road and all over the place, because that's who our Chan Meti is. And in fact, by the way, his family is in Suratani.
+**Dhammarato:** And you're a new monk. But Ajahn Meti is an old hand, and so he has already gone through a lot of the stuff that you need to go through, and yet he likes to take you and whoever is there. In fact, the question that you're asking in a way, was phrased to me way back as far as 2016, about eight years ago, because friends were staying at Dam Kiem and Ajahn Meti was taking them to Suratane, taking them to all the little schools and up the road and all over the place, because that's who our Chan Meti is. And in fact, by the way, his family is in Suratani.
 
 **Phra Cathal:** Yeah.
 
@@ -117,7 +117,7 @@ toc: true
 
 **Phra Cathal:** Yeah, I was sort of.
 
-**Dhammarato:** You know where Ajahn Po's kuti is at Watson Mo?
+**Dhammarato:** You know where Ajahn Poh's kuti is at wat suan mokkh?
 
 **Phra Cathal:** Yes.
 
@@ -137,7 +137,7 @@ toc: true
 
 **Phra Cathal:** Oh, yeah, yeah. Okay.
 
-**Dhammarato:** Okay. And they've taken the generator out, but some of the old electrical stuff that was operating with that generator is still in that building. It's actually looks like a garage now, and it's kind of unused. Okay. You go to the. Looking at the building to the right side, and there's going to be a path along the right side of the back of that building. And you follow that path up a ways, and it'll take you first to a concrete kuti, and you turn to the right again, and that will lead you up the hill a bit to Achan Po's original old kuti. All right, You. You go beyond that and turn again, right, and that'll take you up to the cootie that I stayed in. Old cooties. The reason that I'm mentioning these is because they're far enough out of the way and yet close enough that there's kind of that in between. And you can have a lot of time there. Very close to the dining hall. Rather than a 20 minute walk, it's a five minute walk. And there's those old cooties, both his old cootie. And there's also up the hill from there, an old barn. Actually, I think it was originally a repair shop for old vehicles back in the 1940s, because it's got that. Well, you know, nowadays they put a car on the lift to raise it up so that they can work underneath it. But in the old days, they would dig a pit and then the car would roll over the pit. So that building there, these are buildings that I know of that I spent time in that are pretty close to the Watt without going off into the old cootie area. But in any case, you can talk to the guy who has the keys, the office, whoever's running the office nowadays has the keys to all of those cooties. And what I would recommend is you go inspect the cooties and find any of them that have locks on the door and doesn't look like anybody staying there. Pick out which one you want, see if you can figure out what number it is, and then ask for that key for that cootie. You can also stay in the big dormitories that David is staying in. So you have plenty of options three weeks from now.
+**Dhammarato:** Okay. And they've taken the generator out, but some of the old electrical stuff that was operating with that generator is still in that building. It's actually looks like a garage now, and it's kind of unused. Okay. You go to the. Looking at the building to the right side, and there's going to be a path along the right side of the back of that building. And you follow that path up a ways, and it'll take you first to a concrete kuti, and you turn to the right again, and that will lead you up the hill a bit to Ajahn Poh's original old kuti. All right, You. You go beyond that and turn again, right, and that'll take you up to the cootie that I stayed in. Old cooties. The reason that I'm mentioning these is because they're far enough out of the way and yet close enough that there's kind of that in between. And you can have a lot of time there. Very close to the dining hall. Rather than a 20 minute walk, it's a five minute walk. And there's those old cooties, both his old cootie. And there's also up the hill from there, an old barn. Actually, I think it was originally a repair shop for old vehicles back in the 1940s, because it's got that. Well, you know, nowadays they put a car on the lift to raise it up so that they can work underneath it. But in the old days, they would dig a pit and then the car would roll over the pit. So that building there, these are buildings that I know of that I spent time in that are pretty close to the Watt without going off into the old cootie area. But in any case, you can talk to the guy who has the keys, the office, whoever's running the office nowadays has the keys to all of those cooties. And what I would recommend is you go inspect the cooties and find any of them that have locks on the door and doesn't look like anybody staying there. Pick out which one you want, see if you can figure out what number it is, and then ask for that key for that cootie. You can also stay in the big dormitories that David is staying in. So you have plenty of options three weeks from now.
 
 **Phra Cathal:** Yeah, for. For after the. After the Panza. That's something. I'm just playing around a bit right now. You know, I'm. I'm not concrete on anything. And I haven't even talked to Ajahn Mehdi about the fact that, yeah, I'm really enjoying seclusion and I don't really want to go to another ceremony. But I'll come. If you really want me to come, I'll come. But not every. Every few days, please. But, you know, I'll come now.
 
@@ -181,7 +181,7 @@ toc: true
 
 **Phra Cathal:** Sometimes I feel like, you know, how many times have been thinking about just doing that, but in the back of my head, is this not like something offensive or is this something that they do, they take it personally? Because I remember I did that one time and it seemed to be live a really bad message. You know, I just got that sense right after I did that. Got this sort of immediate change in our relationship. Like I was sort of more on the outside at that point.
 
-**Dhammarato:** But isn't that what you're asking? No, I was on the outside of all of these activities that Achan Metti is taking you on.
+**Dhammarato:** But isn't that what you're asking? No, I was on the outside of all of these activities that Ajahn Metti is taking you on.
 
 **Phra Cathal:** No, I mean, I meant like the, the act of just walking out or the act of just all right, peace and then just leaving. Is that something that the tie people into? Or maybe I would say, like, is that acceptable or up for admonishment in this sort of places? You know?
 
@@ -293,7 +293,7 @@ toc: true
 
 **Phra Cathal:** Oh yeah, yeah, I know what you mean. Yeah. I have no schedule or no job or anything like that. Yeah, true. Yeah, yeah, true. It's. There's a. For me there's like a different like quality of break when I have this experience I have right now where I have no. Oh yeah. Like I can just sit in my cootie for a few days. I. It's like a relief in the mind. That's definitely different than the general experience of the day to day life of the monastery. It's a, it's a different. Yeah, a different quality of sort of taking a break. It's like my mind really. It's very blissful is what I'm saying. And it's very nice to recharge or I don't know, not recharge, but it's a deeper recharge. You know, I really was like, can you get your.
 
-**Dhammarato:** Here's the interesting question. Can you get yourself into that retired state, that easy state. State and still go along with Hachan Meti and maintain that place of quietude even though you're riding in the car and even though that he's put you around Thai people, you're not able to do that yet.
+**Dhammarato:** Here's the interesting question. Can you get yourself into that retired state, that easy state. State and still go along with Ajahn Meti and maintain that place of quietude even though you're riding in the car and even though that he's put you around Thai people, you're not able to do that yet.
 
 **Phra Cathal:** That is my number one. Like, I wouldn't call it a goal, but that is always in my. You know, my.
 
@@ -303,7 +303,7 @@ toc: true
 
 **Phra Cathal:** It's over.
 
-**Dhammarato:** Just sit there and hang out. Achan po used to do that to me, by the way. You wouldn't believe how many places he's taken me. And my only job was to do nothing. It's just to be there with the other monks when you're with monks or be with the lay people when you're the lay people and do nothing. Just sit quietly. Don't want. Don't expect. Don't want it to be over. Find that solitude in your kuti and then go with a chan meti in that solitude. This is a very important thing that I'm talking about now.
+**Dhammarato:** Just sit there and hang out. Ajahn Poh used to do that to me, by the way. You wouldn't believe how many places he's taken me. And my only job was to do nothing. It's just to be there with the other monks when you're with monks or be with the lay people when you're the lay people and do nothing. Just sit quietly. Don't want. Don't expect. Don't want it to be over. Find that solitude in your kuti and then go with a chan meti in that solitude. This is a very important thing that I'm talking about now.
 
 **Speaker C:** Yeah, yeah, yeah.
 
@@ -319,7 +319,7 @@ toc: true
 
 **Phra Cathal:** Now, I know that's another unwholesome thought. I've. I have seen this whole game more and more and more and more, you know, the. Where the duka is really coming from. But, yeah, yeah, it's just seeing that more and more and more. Suppose.
 
-**Dhammarato:** That, like I said, when I was out with a chun Po, I really didn't have anything to do. Now, there was a couple of times when, yes, I did have to help an elderly monk come down the mountain. But that was, you know, that was the reason that we had gone to that monk was because he needed to be taken care of by other monks. But that was a marvelous relationship. His name was Achan Lee, and he was a marvelous character. And I learned a lot from him, mainly because he spoke English. But I. He became friends with me because I helped him. But I helped him because Achan Po asked me to go with him and help this monk. But other than that, every time that I ever went out with Achan Po, it was kind of a training in the sense of, can you just do nothing while I'm doing my business, but I've got a great big package that I'm carrying around called Amarato. And. And it's a whole lot easier to deal with when it's not squirming.
+**Dhammarato:** That, like I said, when I was out with a Ajahn Poh, I really didn't have anything to do. Now, there was a couple of times when, yes, I did have to help an elderly monk come down the mountain. But that was, you know, that was the reason that we had gone to that monk was because he needed to be taken care of by other monks. But that was a marvelous relationship. His name was Ajahn Lee, and he was a marvelous character. And I learned a lot from him, mainly because he spoke English. But I. He became friends with me because I helped him. But I helped him because Ajahn Poh asked me to go with him and help this monk. But other than that, every time that I ever went out with Ajahn Poh, it was kind of a training in the sense of, can you just do nothing while I'm doing my business, but I've got a great big package that I'm carrying around called Amarato. And. And it's a whole lot easier to deal with when it's not squirming.
 
 **Phra Cathal:** If I'm being honest. I have been squirming a lot. So maybe you're. Maybe I do need to keep reminding myself to cool off, even when I'm just. Yeah, just keep practicing in these places. But there's always that ideal I have of what you're saying, and I'll bring it in, and then I'll. It starts to play out in real life, and I'm like, but you have.
 

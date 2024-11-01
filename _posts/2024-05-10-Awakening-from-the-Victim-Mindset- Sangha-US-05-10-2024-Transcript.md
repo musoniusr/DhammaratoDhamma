@@ -136,7 +136,7 @@ And so look at about how much our choices are limited, especially out in the wor
 
   
 
-In fact, that almost all the thoughts that we have are the thoughts that we have been given by someone else. Luckily, a lot of the thoughts that I have, I've gotten from Bhikkhu Buttadasa, Achan po, and some other good teachers, but they're not my thoughts. Okay?
+In fact, that almost all the thoughts that we have are the thoughts that we have been given by someone else. Luckily, a lot of the thoughts that I have, I've gotten from Bhikkhu Buttadasa, Ajahn Poh, and some other good teachers, but they're not my thoughts. Okay?
 
   
 

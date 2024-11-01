@@ -61,7 +61,7 @@ So this is the way that we can begin to understand that we, too, can find pleasu
 
 And I'm the only one who remembers that situation. Everybody else has forgotten about it. That I was very egocentric in that point in time, I did something wrong, but now nobody remembers it. Let me forget about it, too. So in that regard, again, wherever it may be found, let's look for pleasure.
 
-Even when a negative thought comes up, we can have a pleasurable thought about it then. In fact, we talk about this quite often. The Buddha had this statement that when he sees Myra, when he sees a negative thought, when he sees something unwholesome, he says, "aha, I see you, Mara." So he actually takes pleasure even in seeing unwholesome thoughts.
+Even when a negative thought comes up, we can have a pleasurable thought about it then. In fact, we talk about this quite often. The Buddha had this statement that when he sees Mara, when he sees a negative thought, when he sees something unwholesome, he says, "aha, I see you, Mara." So he actually takes pleasure even in seeing unwholesome thoughts.
 
 But our habits would be that when we see an unwholesome thought, oh, poor me, I shouldn't have unwholesome thoughts. All the cosmos, all the comma, machine, all the Lord is going to be unhappy because I had an unwholesome thought. And it's, in fact, you're the God here. You're your own kamma machine. And you've got a choice about the way that you feel.
 

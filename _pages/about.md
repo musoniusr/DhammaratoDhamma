@@ -10,7 +10,7 @@ comments: true
 
 <p>This website is an archive of Dhammarato's one-on-one and Sangha Dhamma talks.</p>
 
-<p>Dhammarato is a dhamma teacher in the lineage of Bhikkhu Buddhadasa. Now retired into the Lay life He spent many years as a monk in both Thailand and USA. He lives in Thailand on Kho Phangan and invites all dhamma friends to come hang out. He talks about the supramundane dhamma as instructed by Achan Pho the abbot of Wat Suan Mokkh.</p>
+<p>Dhammarato is a dhamma teacher in the lineage of Bhikkhu Buddhadasa. Now retired into the Lay life He spent many years as a monk in both Thailand and USA. He lives in Thailand on Kho Phangan and invites all dhamma friends to come hang out. He talks about the supramundane dhamma as instructed by Ajahn Pho the abbot of Wat Suan Mokkh.</p>
 
 <p>Dhammarato corrects many of the misconceptions westerners have about Buddhism and the current western variations of Buddhism.</p>
 

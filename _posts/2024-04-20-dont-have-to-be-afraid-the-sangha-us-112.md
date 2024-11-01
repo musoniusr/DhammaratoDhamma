@@ -256,13 +256,13 @@ So if you're going to come out of fear, we have to relax our own rule systems. W
 
 But that's one of the things that I will mention about a chan pod was he never did anything to make me afraid of him. I was always really glad to see him. And that was not true in all cases. There were some monks. I didn't like to see them when they would come up.
 
-Why? Because they would be critical. But a Chun Po was always very, very responsive like that. And he never did anything to make me feel afraid. He always made me feel welcoming.
+Why? Because they would be critical. But a Ajahn Poh was always very, very responsive like that. And he never did anything to make me feel afraid. He always made me feel welcoming.
 
 And I'll tell you a little story. That on the side point is that Daniel has now taken on the robes. We just talked to him yesterday. He's at guess where with a chance. And Royette, have you talked to him yet, Cap?
 
 Yeah, I'm trying to help him out with his visa, but I'll talk to you later about that. But, yeah, we talked yesterday about it. Yeah, let's talk about the visa stuff later. But meanwhile, what he said was, and this I already knew about a chance because I've heard about him before, and that is, is that he continues to nurture Daniel. Oh, good job.
 
-Oh, that's really great. He doesn't criticize Daniel. And here you are at a wattage where you're constantly being criticized. Kat. Now, it actually, I would say that Achan po really, really helped me a lot by never being critical with me.
+Oh, that's really great. He doesn't criticize Daniel. And here you are at a wattage where you're constantly being criticized. Kat. Now, it actually, I would say that Ajahn Poh really, really helped me a lot by never being critical with me.
 
 This is one of the reasons also that there is a rule with the monks. One of the Patty monk rules is that monks don't criticize other monks. We want to give them the feeling of being safe and secure around us. We're not critical. We're nurturing with others.
 

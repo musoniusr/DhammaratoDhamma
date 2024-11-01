@@ -262,7 +262,7 @@ Okay. They observe the thoughts and then observe more unwholesome thoughts. And 
 
 And when an unwholesome thought comes in. Hot dog. I caught that one too. Let's make a change. The Buddha, in fact, had a little phrase that he used that it was early in his time when he was at Bodh Gaia.
 
-And that little phrase is, aha, I see you, Myra. Aha, I see that unwholesome thought. In other words, we can gladden the mind immediately.
+And that little phrase is, aha, I see you, Mara. Aha, I see that unwholesome thought. In other words, we can gladden the mind immediately.
 
 And wanting to be gladdened completely is just another unwholesome thought. Because you're not. You're not. Okay, right now, all of these unwholesome thoughts. Oh, will I ever get rid of them?
 

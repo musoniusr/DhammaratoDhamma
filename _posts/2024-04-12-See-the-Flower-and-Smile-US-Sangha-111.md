@@ -297,7 +297,7 @@ And so that's basically the hard versus the soft is. The hard is when people thi
 
 Now I can rest me before the journey starts. I can rest. I don't even have to take the journey. I feel good already. Maybe I can take a half a mile journey, maybe ten steps, and now I'm ready to quit.
 
-When do you find your satisfaction inside that you're already good enough? And all of those people who were working so hard, all of those people who were doing those Tonkas and doing those mandalas and doing those cold settings that the Tibetans do are, in fact, all of this point that I'm making started with Kathleen, who is in a watt in Udan Thani. It's actually the wat that Achan Munich was in, a very famous monk, and he really worked hard and hard. Most of his biography is about how hard he worked, and then he quit, and now it's full of Germans. You got a german achon and german monks and all of that.
+When do you find your satisfaction inside that you're already good enough? And all of those people who were working so hard, all of those people who were doing those Tonkas and doing those mandalas and doing those cold settings that the Tibetans do are, in fact, all of this point that I'm making started with Kathleen, who is in a watt in Udan Thani. It's actually the wat that Ajahn Munich was in, a very famous monk, and he really worked hard and hard. Most of his biography is about how hard he worked, and then he quit, and now it's full of Germans. You got a german achon and german monks and all of that.
 
 And Catholic was saying, they're working so hard. Look how hard they're working. They have to eat their food really, really quickly to where the Buddha says, no, take it very easy.
 
