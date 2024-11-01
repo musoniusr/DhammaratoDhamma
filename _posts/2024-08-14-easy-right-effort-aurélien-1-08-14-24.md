@@ -20,11 +20,11 @@ toc: true
 
 ### Transcript
 
-**Dhammarato:** Why is it that Westerners don't understand the value of practice? 
+**Dhammarato:** The question you asked is "Why is it that Westerners don't understand the value of practice?"
 
 **Speaker B:** Yeah. Okay.
 
-**Dhammarato:** Okay, so basically, to not understand the value of practice is actually to miss out on the entire point of the Four Noble Truths. And that our culture, let us say, is a victim's culture. Every child is raised as a victim. Every child is actually born as a victim. When someone is born, they can't feed themselves, they can't walk, they can't talk, they can't pick up an armor and swords or a gun and defend themselves or anything. And as the child grows up, they begin to play. And what Mommy does is take the child's play away and says, clean up your room, do your homework, do what you're told to do, go to school, et cetera. Like that. And so in that regard, we remain victims to Mommy. She's the boss. And so our whole world is as a up, down, big dog, little dog, underdog. In fact, Fritz Pearls called it top dog and underdog. And every human being is born as an underdog, and they want to become a top dog, and they don't know how to do that. And so they make a huge number of mistakes in the sense of, I'm a bully, I'm a top dog. No, bullies are really for dogs. I've got a lot of money, I've worked hard. I'm an entrepreneur, I'm a top dog. No, you're an underdog. A good example of that would be Elon Musk.
+**Dhammarato:** Okay, so basically, to not understand the value of practice is actually to miss out on the entire point of the Four Noble Truths. And that our culture, let us say, is a victim's culture. Every child is raised as a victim. Every child is actually born as a victim. When someone is born, they can't feed themselves, they can't walk, they can't talk, they can't pick up an armor and swords or a gun and defend themselves or anything. And as the child grows up, they begin to play. And what Mommy does is take the child's play away and says, clean up your room, do your homework, do what you're told to do, go to school, et cetera. Like that. And so in that regard, we remain victims to Mommy. She's the boss. And so our whole world is as a up, down, big dog, little dog, underdog. In fact, Fritz Pearls called it top dog and underdog. And every human being is born as an underdog, and they want to become a top dog, and they don't know how to do that. And so they make a huge number of mistakes in the sense of, I'm a bully, I'm a top dog. No, bullies are really underdogs. I've got a lot of money, I've worked hard. I'm an entrepreneur, I'm a top dog. No, you're an underdog. A good example of that would be Elon Musk.
 
 **Speaker B:** Yeah. So that recently I was going to mention, the problem arises when you're a victim to Mommy is what if Mommy doesn't have it all figured out?
 
@@ -36,7 +36,7 @@ toc: true
 
 **Speaker B:** As in, no one's in.
 
-**Dhammarato:** That's the only way that you're going to find a mommy. Well, yeah, all the mommies are like that. Why? Because enlightened women are unlikely to have babies.
+**Dhammarato:** As in, that's the only way that you're going to find a mommy. Well, yeah, all the mommies are like that. Why? Because enlightened women are unlikely to have babies.
 
 **Speaker B:** Yeah, yeah, I understand that. But enlightened women might also, I don't know, give talks, give teachings, like, as yourself. We can still learn from them, can we not?
 
@@ -56,23 +56,23 @@ toc: true
 
 **Speaker B:** It's a span. That's how you learn.
 
-**Dhammarato:** You gotta go to Spanish culture. It's immersion. You've got to have it that way. So another one it would be, is that the Dhamma is to be practiced. Yeah, often. And enough so that the Dhamma then becomes. That Dhamma is to be lived.
+**Dhammarato:** You gotta go to Spanish culture. It's immersion. You've got to have it that way. So another one it would be, is that the Dhamma is to be practiced often and enough so that the Dhamma then becomes That Dhamma is to be lived.
 
 **Speaker B:** Baseline living. Yeah.
 
-**Dhammarato:** Okay. Big, big change in life. And so also the other point is that no matter what religion that people are in, the culture is Christian. But Islam has exactly the same trouble. And that is that the people who are in a religion depend upon other authorities. Oh yeah, preachers, Sunday school teachers, but mostly a daddy that doesn't exist. A sky daddy and a Jesus has been dead for 2,000 years. And they become the substitute of the surrogate authorities. And in fact, what that means is that the person then stays a victim. The things that don't even exist. And we suck up to that. This is, in fact, you probably heard this a lot in Christianity if you've been around it, that Jesus saves.
+**Dhammarato:** Okay. Big, big change in life. And so also the other point is that no matter what religion that people are in, the culture is Christian. But Islam has exactly the same trouble. And that is that the people who are in a religion depend upon other authorities. Preachers, Sunday school teachers, but mostly a daddy that doesn't exist. A sky daddy and a Jesus has been dead for 2,000 years. And they become the substitute of the surrogate authorities. And in fact, what that means is that the person then stays a victim to the things that don't even exist. And we suck up to that. This is, in fact, you probably heard this a lot in Christianity if you've been around it, that Jesus saves.
 
 **Speaker B:** Oh yeah.
 
-**Dhammarato:** Yeah, all the time Jesus saves, you need Jesus. If you don't have Jesus, you're screwed.
+**Dhammarato:** Jesus saves, you need Jesus. If you don't have Jesus, you're screwed.
 
 **Speaker B:** But like you said, Jesus has been dead a long time. We can only save ourselves.
 
 **Dhammarato:** This is back to the four noble truths then is that the second noble truth is so profound that most people miss it, even though it's simple in the sense that the cause of suffering, the cause of dukkha. And by the way, let's redefine the word dukkha to be dissatisfaction.
 
-**Speaker B:** Satisfaction.
+**Speaker B:** dissatisfaction.
 
-**Dhammarato:** Yeah. Now dissatisfaction means that we don't like stuff.
+**Dhammarato:** Now dissatisfaction means that we don't like stuff.
 
 **Speaker B:** And something to be different.
 
@@ -84,7 +84,7 @@ toc: true
 
 **Speaker B:** Yeah.
 
-**Dhammarato:** We need his help, we need his mercy, we need Jesus as a savior, etc. Like that. And basically that means to save us from our own dissatisfactions, our own disappointments. But the Buddha teaches that the second noble truth is our own actions, our own feelings, ignorantly that in fact if we think that it's God's fault, that's a huge ignorance right there. That all the dissatisfactions that anyone ever comes up with is self made. We were taught that and we believed it. We were victims to mommy and to the teachers and to grandpa and to Uncle Sam or whoever. And we're just victims because we have been victimized by adult victims.
+**Dhammarato:** We need his help, we need his mercy, we need Jesus as a savior, etc. Like that. And basically that means to save us from our own dissatisfactions, our own disappointments. But the Buddha teaches that the second noble truth is our own actions, our own feelings, ignorantly. That in fact if we think that it's God's fault, that's a huge ignorance right there. That all the dissatisfactions that anyone ever comes up with are self made. We were taught that and we believed it. We were victims to mommy and to the teachers and to grandpa and to Uncle Sam or whoever. And we're just victims because we have been victimized by adult victims.
 
 **Speaker B:** We've been told we need permission to be okay whenever we want to be. When in reality we don't need any permission. We can give that permission ourselves.
 
@@ -92,15 +92,15 @@ toc: true
 
 **Speaker B:** So we've been raised thinking that we need permission from someone else to be okay, like God, our parents. When in reality is we can give that permission ourselves.
 
-**Dhammarato:** Yes, we need permission. And that is in fact one of the ways of saying it is that there are three kinds of doub. And the first doubt is who can I get to help me out of the mess that I'm in? And sometimes it takes a long time. People can be practicing, even practicing Buddhism, but not practicing correctly because they still don't understand. They think that the guru, the teacher, someone is going to help them if they can only show off enough to prove that they're a good student and then they'll get blessed. They'll be told, oh, you're a good boy and you know this and you know that and then they'll feel good. Yeah, we're wanting validation. Why? Because we don't know how to give it to ourselves. And the reason for that is because we never been around anybody who knows how to Teach one to validate themselves, or better still, to figure out that we don't even need validation. What we really need is reality.
+**Dhammarato:** Yes, we need permission. And that is in fact one of the ways of saying it is that there are three kinds of doubt. And the first doubt is who can I get to help me out of the mess that I'm in? And sometimes it takes a long time. People can be practicing, even practicing Buddhism, but not practicing correctly because they still don't understand. They think that the guru, the teacher, someone is going to help them if they can only show off enough to prove that they're a good student and then they'll get blessed. They'll be told, oh, you're a good boy and you know this and you know that and then they'll feel good. Yeah, we're wanting validation. Why? Because we don't know how to give it to ourselves. And the reason for that is because we never been around anybody who knows how to teach one to validate themselves, or better still, to figure out that we don't even need validation. What we really need is reality.
 
 **Speaker B:** Yeah. This very moment is all we need.
 
 **Dhammarato:** The need for validation is not real. The need for love, looking for love in all the wrong places is because we've been taught that we need to be loved and we don't need to be loved. You're already okay without being loved.
 
-**Speaker B:** You're alive now. You're breathing, you're fine. And I hear you saying a lot. If you're not breathing, even better, you don't worries anymore.
+**Speaker B:** You're alive now. You're breathing, you're fine. And I hear you saying a lot, "If you're not breathing, even better, you don't worries anymore." (laughs)
 
-**Dhammarato:** Exactly. So. Because all the worries that are created are created by people who are breathing. And so this is the way of recognizing that the second Noble truth actually has a profound point to it, and that is that nobody's going to help you. Now, if a kid goes to a piano teacher after he's been practicing for a week, the piano teacher can hear his practice.
+**Dhammarato:** Exactly so. Because all the worries that are created are created by people who are breathing. And so this is the way of recognizing that the second Noble truth actually has a profound point to it, and that is that *nobody's going to help you*. Now, if a kid goes to a piano teacher after he's been practicing for a week, the piano teacher can hear his practice.
 
 **Speaker B:** Yeah.
 
@@ -114,7 +114,7 @@ toc: true
 
 **Dhammarato:** Actually, that comes from Sutta number 19.
 
-**Speaker B:** Well, I wasn't over.
+**Speaker B:** Well, I wasn't aware.
 
 **Dhammarato:** Yes. The story is that the cowherd, not a drover that's got 10,000 cattle going from Texas to the railhead at Dodge City or something, but rather this cowherd is in the time of the Buddha, he's got half a dozen cows. So he sets out from his house and he has to take those cows through a bit of a village.
 
@@ -397,6 +397,23 @@ Dhammarato discusses the importance of practice in Buddhism, emphasizing that pe
 - It's possible to make progress on the path to enlightenment without getting bogged down in unnecessary striving
 - We need to find a balance between effort and relaxation
 - This balance is key to making progress on the path
+
+### References
+
+The Story of the Cowherd mentioned in this talk is from Majjhima Nikaya Sutta 19 - "Dvedhavitakka Sutta" or "Two Kinds of Thought" (MN 19).
+
+see https://suttacentral.net/mn19/en/bodhi?lang=en&reference=none&highlight=false
+see https://suttacentral.net/mn19/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin
+see https://www.accesstoinsight.org/tipitaka/mn/mn.019.than.html
+
+The story of the cowherd is used to illustrate the concept of mindfulness and the importance of being present in the moment. The cowherd is described as someone who is fully engaged in his task of herding the cows, and is not distracted by thoughts of the past or future.
+
+The sutta uses this story to make a point about the importance of mindfulness in daily life, and how it can help us to cultivate a greater sense of awareness and clarity.
+
+Dhammarato uses this story to illustrate the concept of "just enough" effort and the importance of being mindful and present in one's actions. The cowherd's task is to take the cows through the village without causing any trouble or disturbance. He needs to be mindful of the cows, the villagers, and the surroundings to achieve his goal. Similarly, in our spiritual practice, we need to apply "just enough" effort to make progress without getting too caught up in our thoughts or emotions.
+
+In the context of the transcript, Dhammarato uses the story to explain the concept of "just enough" effort and how it applies to our spiritual practice. He emphasizes the importance of being mindful and present in our actions, just like the cowherd, to achieve our goals and make progress on the spiritual path.
+
 
 ### Participate in one of our Live Sanghas (Free of Charge)
 
