@@ -354,11 +354,11 @@ toc: true
 
 **Dhammarato:** Excellent.
 
-**Speaker B:** Keep well, Damarato, and enjoy the weather. Have some fun. Yeah.
+**Speaker B:** Keep well, Dhammarato, and enjoy the weather. Have some fun. Yeah.
 
 **Dhammarato:** Okay. We'll see you.
 
-**Speaker B:** See you, Damarato. Bye.
+**Speaker B:** See you, Dhammarato. Bye.
 
 ### Summary of this Dhamma Talk
 
