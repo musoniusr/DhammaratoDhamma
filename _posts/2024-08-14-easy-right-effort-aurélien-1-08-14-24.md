@@ -402,9 +402,11 @@ Dhammarato discusses the importance of practice in Buddhism, emphasizing that pe
 
 The Story of the Cowherd mentioned in this talk is from Majjhima Nikaya Sutta 19 - "Dvedhavitakka Sutta" or "Two Kinds of Thought" (MN 19).
 
-see [Bhikkhu Bodhi Translation of Sutta 19](https://suttacentral.net/mn19/en/bodhi?lang=en&reference=none&highlight=false)
-see [Bhikkhu Sujato Translation of Sutta 19](https://suttacentral.net/mn19/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin)
-see [Thanissaro Bhikkhu translation of Sutta 19](https://www.accesstoinsight.org/tipitaka/mn/mn.019.than.html)
+[Bhikkhu Bodhi Translation of Sutta 19](https://suttacentral.net/mn19/en/bodhi?lang=en&reference=none&highlight=false)
+
+[Bhikkhu Sujato Translation of Sutta 19](https://suttacentral.net/mn19/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin)
+
+[Thanissaro Bhikkhu translation of Sutta 19](https://www.accesstoinsight.org/tipitaka/mn/mn.019.than.html)
 
 The story of the cowherd is used to illustrate the concept of mindfulness and the importance of being present in the moment. The cowherd is described as someone who is fully engaged in his task of herding the cows, and is not distracted by thoughts of the past or future.
 
