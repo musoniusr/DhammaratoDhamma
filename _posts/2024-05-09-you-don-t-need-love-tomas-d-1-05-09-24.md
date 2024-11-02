@@ -546,10 +546,6 @@ In this talk, Dhammarato discusses how to break free from self-criticism and per
 - Living without categorizing things as good or bad
 
 
-### References
-
-[^1]: "He proclaims a teaching that is good in the beginning, good in the middle, and good in the end, meaningful and well-phrased. And he reveals a spiritual practice that’s entirely complete and pure." see https://suttacentral.net/mn27/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin
-
 ### Participate in one of our Live Sanghas (Free of Charge)
 
 <p>►The Sangha US, Friday 7 PM PDT <a href="https://join.skype.com/uyYzUwJ3e3TO">Join Skype Call</a>.</p>
@@ -559,3 +555,8 @@ In this talk, Dhammarato discusses how to break free from self-criticism and per
 <p>►The Sangha UK, Wednesday 7PM BST <a href="https://join.skype.com/w6nFHnra6vdh">Join Skype Call</a>.</p>
 
 There is nothing like direct transmission of the teachings in a one-to-one or one-to-group (Sangha) format from a skilled teacher. We encourage you to participate in our weekly Sanghas.
+
+
+### References
+
+[^1]: "He proclaims a teaching that is good in the beginning, good in the middle, and good in the end, meaningful and well-phrased. And he reveals a spiritual practice that’s entirely complete and pure." see https://suttacentral.net/mn27/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin
