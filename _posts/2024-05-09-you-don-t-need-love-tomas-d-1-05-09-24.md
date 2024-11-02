@@ -510,34 +510,40 @@ In this talk, Dhammarato discusses how to break free from self-criticism and per
 
 
 #### Introduction to Self-Criticism and Acceptance
-    - Discussion of climate change activism and accepting current reality
-    - Importance of focusing on what we can change now
-    - Understanding that the past is gone
+
+- Discussion of climate change activism and accepting current reality
+- Importance of focusing on what we can change now
+- Understanding that the past is gone
 
 #### Breaking Free from Self-Criticism
-    - Recognizing critical thought patterns
-    - Learning to see thoughts without judgment
-    - Understanding we're "already good enough"
+
+- Recognizing critical thought patterns
+- Learning to see thoughts without judgment
+- Understanding we're "already good enough"
 
 #### Dealing with Suicidal Thoughts
-    - Confronting fear behind suicidal ideation
-    - Understanding the self-preservation instinct
-    - Changing victim mentality to empowerment
+
+- Confronting fear behind suicidal ideation
+- Understanding the self-preservation instinct
+- Changing victim mentality to empowerment
 
 #### Addressing Addiction and Shame
-    - Discussion of porn addiction and social judgment
-    - Understanding addiction as seeking love in wrong places
-    - Breaking free from societal conditioning
+
+- Discussion of porn addiction and social judgment
+- Understanding addiction as seeking love in wrong places
+- Breaking free from societal conditioning
 
 #### Relationships and External Validation
-    - Why seeking love externally doesn't work
-    - Understanding projection in relationships
-    - Learning to be content without external validation
+
+- Why seeking love externally doesn't work
+- Understanding projection in relationships
+- Learning to be content without external validation
 
 #### The Paradise of Non-Judgment
-    - Interpretation of Adam and Eve story
-    - How judgment destroys paradise
-    - Living without categorizing things as good or bad
+
+- Interpretation of Adam and Eve story
+- How judgment destroys paradise
+- Living without categorizing things as good or bad
 
 
 ### References
