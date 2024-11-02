@@ -24,10 +24,6 @@ toc: true
 ### Transcript
 
 
-**Dhammarato:** The screen flashes a bit.
-
-**Jonas:** All right, it works.
-
 **Dhammarato:** Jonah. Here's what we're going to do. We're going to start from the very beginning. And the way that I start with the very beginning is in two ways. In fact, the Buddha, in his very first talk, he starts off with the middle path, and then he teaches the Eightfold  noble path. But one of the things that we have to begin to understand that almost always our Western society is in one extreme or the other. Okay, go to one extreme or the other. Now, when you're at one extreme and you look back at the other extreme, if you see somebody in the middle, they look like the territory other extreme, just a little bigger. And so the middle path is to find a balance between the extremes. And there's always a way to find this out so that we can find a middle path. An easy and clear example for students is that the past is one extreme and the future is another extreme. And the middle path, the balance between them is right here, right now. Another one would be the extreme of East. Way east. There's so much happening. Really, really east. I know. I'm pointing west, and then we point west and say way over there. But the balance between what is way over east and what is way over west is right here. This is what we mean by here. Now.
 
 
