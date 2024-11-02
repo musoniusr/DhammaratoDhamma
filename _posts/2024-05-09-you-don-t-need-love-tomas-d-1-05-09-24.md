@@ -83,7 +83,7 @@ toc: true
 
 **Tomas:** I would want to wake up at 5:30, let's say I want to wake up early, early bird, guess the worm or whatever it is in English, I don't know. Then I wake up, let's say at 5:45, which is still perfectly okay. But then I started feeling bad about it, and I started thinking, why am I feeling bad about this? I didn't do anything that's bad. I just woke up a bit later than I had planned.
 
-**Dhammarato:** There's an easy answer to that question, because you're in a habit of feeling bad about things, and you just plugged waking up early into that formula. Bad formula. Habit of bad feelings, comma, waking up early, closed for in semicolon. And it's a function that you have, and so you wind up with bad feelings. You can plug anything in. The way you brush your teeth. You can feel bad. The way you put your clothes on. Oh, I should have put my right foot in the shoe before I put my socks on.
+**Dhammarato:** There's an easy answer to that question, because you're in a habit of feeling bad about things, and you just plugged waking up early into that formula. Bad formula. Habit of bad feelings, kamma, waking up early, closed for in semicolon. And it's a function that you have, and so you wind up with bad feelings. You can plug anything in. The way you brush your teeth. You can feel bad. The way you put your clothes on. Oh, I should have put my right foot in the shoe before I put my socks on.
 
 **Tomas:** So the right mentality in this case would be, I woke up at some.
 
