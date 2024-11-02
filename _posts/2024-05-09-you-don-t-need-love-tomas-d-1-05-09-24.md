@@ -85,13 +85,13 @@ toc: true
 
 **Dhammarato:** There's an easy answer to that question, because you're in a habit of feeling bad about things, and you just plugged waking up early into that formula. Bad formula. Habit of bad feelings, kamma, waking up early, closed for in semicolon. And it's a function that you have, and so you wind up with bad feelings. You can plug anything in. The way you brush your teeth. You can feel bad. The way you put your clothes on. Oh, I should have put my right foot in the shoe before I put my socks on.
 
-**Tomas:** So the right mentality in this case would be, I woke up at some.
+**Tomas:** So the right mentality in this case would be, I woke up at some Time 
 
-**Dhammarato:** Time that time, hey, I'm awake. Isn't that wonderful? I didn't die in my sleep. I'm awake. Hot dog. What a marvelous day this is. I'm still alive. That's the kind of wholesome thoughts that you would have. But most people, when they wake up, they start to feel bad. Oh, I've got so much to do today. Oh, I've got to be perfect so I don't get criticized. Oh, I'm going to go criticize those guys. So as a defense for them criticizing.
+**Dhammarato:**  That time. "Hey, I'm awake. Isn't that wonderful? I didn't die in my sleep. I'm awake. Hot dog. What a marvelous day this is. I'm still alive." That's the kind of wholesome thoughts that you would have. But most people, when they wake up, they start to feel bad. "Oh, I've got so much to do today." "Oh, I've got to be perfect so I don't get criticized" "Oh, I'm going to go criticize those guys. So as a defense for them criticizing."
 
 **Tomas:** Me, I was very much my own biggest critic.
 
-**Dhammarato:** So stop criticizing yourself. Stop with the critical mind. See the critical mind, see the criticism and say, hot dog, I see that. Hot dog. I see that's already making a change.
+**Dhammarato:** So stop criticizing yourself. Stop with the critical mind. See the critical mind, see the criticism and say, "hot dog, I see that." "Hot dog. I see that's already making a change."
 
 **Tomas:** These same monk friends I told you about I met in another disco cyber. They told me that maybe the biggest step in making the change is just noticing the pattern of behavior, noticing the thoughts, noticing that that is there. And then from there on, you kind of automatically will.
 
@@ -103,15 +103,15 @@ toc: true
 
 **Tomas:** Yes, very much so.
 
-**Dhammarato:** All right, so they should have told, you got to practice this. You got to start looking at the thoughts you have and start to make changes to them. You can do that walking around. You can do that sitting on the toilet. You can do that while you're putting your socks on. You can do it anytime. This is why it's not meditation. Because meditation is when you put your butt down on a special pillow in a special place with a special altar, special candles, and a special photo or a special Buddha statue, or a special monk in a special meditation hall. All of that kind of special has.
+**Dhammarato:** All right, so they should have told, you got to practice this. You got to start looking at the thoughts you have and start to make changes to them. You can do that walking around. You can do that sitting on the toilet. You can do that while you're putting your socks on. You can do it anytime. This is why it's not meditation. Because meditation is when you put your butt down on a special pillow in a special place with a special altar, special candles, and a special photo or a special Buddha statue, or a special monk in a special meditation hall. All of that kind of special has got to go.
 
-**Tomas:** Got to go and you want to feel special.
+**Tomas:**  and you want to feel special.
 
 **Dhammarato:** Yeah. Including the feeling of wanting to be special and say, I'm already good enough. I don't have to be special. Now here's something that's a catch 22 in that regard. Since everybody that you've ever met wants to be special and you don't care about being special anymore, that ordinary is good enough for you. Guess what? They're still ordinary because all of them want to be special. So that's ordinary. But you don't want to be ordinary anymore.
 
 **Tomas:** Yeah.
 
-**Dhammarato:** So that's quite a 22, isn't it? By not wanting to be special anymore, you do become special.
+**Dhammarato:** So that's quite a catch-22, isn't it? By not wanting to be special anymore, you do become special.
 
 **Tomas:** You know, it's. It's very funny. I've noticed this so many times. I for. I don't know anything about some topic, let's say. And then I just try doing the thing. Then I started.
 
@@ -119,11 +119,11 @@ toc: true
 
 **Tomas:** I just do it. Then I start learning about how I should be doing it. Then there is a long period of me not being happy with myself. And at the end, when I kind of master the thing, I end up going back to the same conclusion of just doing the thing in the beginning.
 
-**Dhammarato:** All that time working, failing at it, and feeling bad about it. And then when you were successful, now you begin to feel good, when in fact, while you were working at it or while you were working at it, you can instead have thought of it as being playful and play with it. And every time you fail, you're happily playing with it. So it. Because it doesn't matter. And then when you succeed, now you really feel good. You felt good in the beginning, you felt good in the middle, and then you felt good in the end. But no, you choose a different. You feel good in the beginning and then feel rotten for a long time in the middle, and then you feel good in the end. And the Buddha. That's actually part of the teaching of the Buddha. You can find it in many suttas, including in the Dhammahnapata, where the Buddha says that this practice is good in the beginning, good in the middle, and good in the end with the right phrasing and timing.
+**Dhammarato:** All that time working, failing at it, and feeling bad about it. And then when you were successful, now you begin to feel good, when in fact, while you were working at it or while you were working at it, you can instead have thought of it as being playful and play with it. And every time you fail, you're happily playing with it. So it. Because it doesn't matter. And then when you succeed, now you really feel good. You felt good in the beginning, you felt good in the middle, and then you felt good in the end. But no, you choose a different. You feel good in the beginning and then feel rotten for a long time in the middle, and then you feel good in the end. And the Buddha. That's actually part of the teaching of the Buddha. You can find it in many suttas, including in the Dhammahnapata, where the Buddha says that this practice is good in the beginning, good in the middle, and good in the end with the right phrasing and timing. [^1] EDIT THIS (Put in place Buddha says this)
 
 **Tomas:** Right phrasing.
 
-**Dhammarato:** Yeah, you gotta understand it. You gotta change that phrasing from I screwed up into oh, look at that, I did something. Mm.
+**Dhammarato:** Yeah, you gotta understand it. You gotta change that phrasing from "I screwed up" into "oh, look at that, I did something. Mm."
 
 **Tomas:** Yeah, Fair. When I was thinking of I'm good enough, there was still. I was using that as an excuse, let's say. So it would be I screwed up in the morning, but something, something, something.
 
@@ -538,6 +538,11 @@ In this talk, Dhammarato discusses how to break free from self-criticism and per
     - Interpretation of Adam and Eve story
     - How judgment destroys paradise
     - Living without categorizing things as good or bad
+
+
+### References
+
+[^1]: "He proclaims a teaching that is good in the beginning, good in the middle, and good in the end, meaningful and well-phrased. And he reveals a spiritual practice that’s entirely complete and pure." see https://suttacentral.net/mn27/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin
 
 ### Participate in one of our Live Sanghas (Free of Charge)
 
