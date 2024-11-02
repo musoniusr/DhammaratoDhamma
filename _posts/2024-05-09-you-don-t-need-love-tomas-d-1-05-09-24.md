@@ -7,7 +7,7 @@ tags: [transcripts, perfectionism, self-criticism, already good enough, suicidal
 image: "https://i.ytimg.com/vi/2koz1UDfzAU/maxresdefault.jpg"
 description: "Transcript of May 09, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-05-09
-featured: true
+featured: false
 hidden: false
 toc: true
 ---
@@ -119,7 +119,7 @@ toc: true
 
 **Tomas:** I just do it. Then I start learning about how I should be doing it. Then there is a long period of me not being happy with myself. And at the end, when I kind of master the thing, I end up going back to the same conclusion of just doing the thing in the beginning.
 
-**Dhammarato:** All that time working, failing at it, and feeling bad about it. And then when you were successful, now you begin to feel good, when in fact, while you were working at it or while you were working at it, you can instead have thought of it as being playful and play with it. And every time you fail, you're happily playing with it. So it. Because it doesn't matter. And then when you succeed, now you really feel good. You felt good in the beginning, you felt good in the middle, and then you felt good in the end. But no, you choose a different. You feel good in the beginning and then feel rotten for a long time in the middle, and then you feel good in the end. And the Buddha. That's actually part of the teaching of the Buddha. You can find it in many suttas, including in the Dhammahnapata, where the Buddha says that this practice is good in the beginning, good in the middle, and good in the end with the right phrasing and timing. [^1] EDIT THIS (Put in place Buddha says this)
+**Dhammarato:** All that time working, failing at it, and feeling bad about it. And then when you were successful, now you begin to feel good, when in fact, while you were working at it or while you were working at it, you can instead have thought of it as being playful and play with it. And every time you fail, you're happily playing with it. So it. Because it doesn't matter. And then when you succeed, now you really feel good. You felt good in the beginning, you felt good in the middle, and then you felt good in the end. But no, you choose a different. You feel good in the beginning and then feel rotten for a long time in the middle, and then you feel good in the end. And the Buddha. That's actually part of the teaching of the Buddha. You can find it in many suttas, including in the Dhammapada, where the Buddha says that this practice is good in the beginning, good in the middle, and good in the end with the right phrasing and timing. [^1]
 
 **Tomas:** Right phrasing.
 
