@@ -3,7 +3,7 @@ layout: post
 title: "Have Happy Thoughts Alexander 1 06 08 24"
 author: Dhammarato
 categories: [transcripts, Dhamma Talk, One on One Talk, Introduction to Buddha Dhamma]
-tags: [transcripts]
+tags: [transcripts, wholesome thoughts, unwholesome thoughts, present moment, victim mentality, satisfaction, breathing practice, gladdening the mind, brightening the mind, seclusion, making pizza, everything is okay, no place to go, nothing to do, safe and secure, comfortable, looking for love in all the wrong places, Make America Great Again, daily practice]
 image: "https://i.ytimg.com/vi/L3S5K0SnShE/maxresdefault.jpg"
 description: "Transcript of June 08, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-06-08
@@ -47,7 +47,7 @@ toc: true
 
 **Alexander:** That phrase seems to be focused on the past.
 
-**Dhammarato:** Mm. And again, means into the future. To where the reality is that things have always been okay and they will always continue to be okay until somebody doesn't like it, and then for them, it's not okay. And we're trained that way. So everybody has the mentality that things are not okay and need to be fixed. And really, what needs to be fixed is our attitude. And we start fixing the attitude by fixing the thoughts that we have. In a way, we call it gladdening the mind, brightening the mind. And if you can gladden the mind and brighten the mind by having good, wholesome words to say, then by doing that, you will begin to feel better. Rather than feeling like you need something, feeling like you've missed something, feeling like you need to be loved. Because when people feel like they need to be loved, they go around looking for love in all the wrong places. You've probably heard that song before. Looking for love in all the wrong places. Why? Because they're looking outside. And in fact, we don't even need to look for love on the inside. Better thing to do is to stop looking for love altogether. You're already okay. You've already got everything you need. You don't need to love yourself. You need to just accept that everything is okay the way that it is. So the way that we do this is by gladdening the mind, brightening the mind, changing our unwholesome thoughts to wholesome thoughts. And as we do so, we begin to feel better, Especially if we're talking to ourselves that way, having thoughts about, everything's okay, everything is fine, not a worry in the world, no problems. And then we can bring the breath in. As I breathe in, everything is okay. And as I breathe out, I relax. I breathe in really good sweet air, and I breathe out the junk. This is the kind of thoughts that we want to have as we're breathing. And as we breathe in, well, we actually energize the body. We oxygenate the blood. We get the mind more fit to work. And as we breathe out, breathe out long, we breathe out. That will expend the carbon dioxide and other impurities in the blood. And so we're actually breathing in order to energize and to purify. So it's not a matter of just thinking about the breath, but it's actually changing the way that we breathe. So we change the way we breathe, we change our attitude, we change our thoughts, and we change our feelings. So it's very much a change model. And we start with changing our thoughts. Everything is all right. Everything is fine. Wow, what a good breath. Oh, just relax. These are the kind of thoughts that we begin to have. Removing those unwholesome thoughts and unwholesome attitude and start having a wholesome attitude. The wholesome attitude is, I can do this. The wholesome attitude is, I feel good. I can control the way I feel. You see, most people in the west, they can't control their feelings because they've never been taught that they could control their feelings. The victim mode that everyone is in is that we're out of control of our feelings. The feelings run the show. And that's true for most people. It's certainly true for politicians and bullies and all kinds of people. So the right way to handle it is to begin to relax and have happy, wholesome thoughts, to begin to change our attitude to a can do attitude. And as we do that, we begin to recognize that you can feel safe and secure, you can feel comfortable, and then you can feel satisfied. And so if you can feel satisfied, let's feel satisfied. Everything is okay the way that it is. No problems, no worries. Everything is okay. Everything is all right.
+**Dhammarato:** Mm. And again, means into the future. To where the reality is that things have always been okay and they will always continue to be okay until somebody doesn't like it, and then for them, it's not okay. And we're trained that way. So everybody has the mentality that things are not okay and need to be fixed. And really, what needs to be fixed is our attitude. And we start fixing the attitude by fixing the thoughts that we have. In a way, we call it gladdening the mind, brightening the mind. And if you can gladden the mind and brighten the mind by having good, wholesome words to say, then by doing that, you will begin to feel better. Rather than feeling like you need something, feeling like you've missed something, feeling like you need to be loved. Because when people feel like they need to be loved, they go around looking for love in all the wrong places. You've probably heard that song before. Looking for love in all the wrong places.[^1] Why? Because they're looking outside. And in fact, we don't even need to look for love on the inside. Better thing to do is to stop looking for love altogether. You're already okay. You've already got everything you need. You don't need to love yourself. You need to just accept that everything is okay the way that it is. So the way that we do this is by gladdening the mind, brightening the mind, changing our unwholesome thoughts to wholesome thoughts. And as we do so, we begin to feel better, Especially if we're talking to ourselves that way, having thoughts about, everything's okay, everything is fine, not a worry in the world, no problems. And then we can bring the breath in. As I breathe in, everything is okay. And as I breathe out, I relax. I breathe in really good sweet air, and I breathe out the junk. This is the kind of thoughts that we want to have as we're breathing. And as we breathe in, well, we actually energize the body. We oxygenate the blood. We get the mind more fit to work. And as we breathe out, breathe out long, we breathe out. That will expend the carbon dioxide and other impurities in the blood. And so we're actually breathing in order to energize and to purify. So it's not a matter of just thinking about the breath, but it's actually changing the way that we breathe. So we change the way we breathe, we change our attitude, we change our thoughts, and we change our feelings. So it's very much a change model. And we start with changing our thoughts. Everything is all right. Everything is fine. Wow, what a good breath. Oh, just relax. These are the kind of thoughts that we begin to have. Removing those unwholesome thoughts and unwholesome attitude and start having a wholesome attitude. The wholesome attitude is, I can do this. The wholesome attitude is, I feel good. I can control the way I feel. You see, most people in the west, they can't control their feelings because they've never been taught that they could control their feelings. The victim mode that everyone is in is that we're out of control of our feelings. The feelings run the show. And that's true for most people. It's certainly true for politicians and bullies and all kinds of people. So the right way to handle it is to begin to relax and have happy, wholesome thoughts, to begin to change our attitude to a can do attitude. And as we do that, we begin to recognize that you can feel safe and secure, you can feel comfortable, and then you can feel satisfied. And so if you can feel satisfied, let's feel satisfied. Everything is okay the way that it is. No problems, no worries. Everything is okay. Everything is all right.
 
 **Alexander:** No worries. Everything is okay.
 
@@ -202,7 +202,50 @@ toc: true
 
 ### Summary of this Dhamma Talk
 
+In this talk, Dhammarato discusses how most people's practice is missing key ingredients, using the analogy of making pizza incorrectly (like not heating the oven or burning your mouth on hot cheese). He emphasizes that while practice can be simple, most people approach it from a victim mentality. Rather than relying on meditation to "fix" things, he advocates for actively changing unwholesome thoughts to wholesome ones, practicing being satisfied in the present moment, and letting go of the constant desire for growth or improvement. He particularly emphasizes the importance of practicing in seclusion multiple times per day, focusing on thoughts like "everything is okay" and using the breath mindfully to energize and purify.
+
 ### Outline of this Dhamma Talk
+
+#### The Problem with Common Practice
+- Most people's practice is missing key ingredients
+- Uses pizza-making analogy to illustrate incorrect practice
+  - Making pizza but not heating the oven
+  - Eating pizza too hot and burning mouth
+
+#### Understanding Thoughts and Attitudes
+- Unwholesome thoughts lead to unwholesome situations
+- Attitude shapes thoughts
+- Most people have a "victim's attitude"
+- Discussion of why "meditation" isn't the answer
+  - Buddha never used the word "meditation"
+  - Practice is a better term than meditation
+
+#### The Issue with Common Mentalities
+- References "Make America Great Again" as example of broken attitude
+- People trained to think things need fixing
+- Reality: things are already okay
+
+#### The Correct Practice Approach
+- Focus on gladdening and brightening the mind
+- Change unwholesome thoughts to wholesome ones
+- Use breath mindfully
+  - Breathe in to energize
+  - Breathe out to purify
+- Practice in seclusion
+- Do this 5-6 times daily for 10-15 minutes
+
+#### Common Misconceptions
+- Helping others before helping yourself
+- Wanting to grow or improve
+- Setting goals and satisfaction
+- References "Looking for Love in All the Wrong Places" (song) [^1]
+
+#### Key Teaching Points
+- Be satisfied with the present moment
+- Stop wanting to grow/improve
+- Everything is okay right now
+- No place to go, nothing to do
+
 
 ### Participate in one of our Live Sanghas (Free of Charge)
 
@@ -213,3 +256,7 @@ toc: true
 <p>►The Sangha UK, Wednesday 7PM BST <a href="https://join.skype.com/w6nFHnra6vdh">Join Skype Call</a>.</p>
 
 There is nothing like direct transmission of the teachings in a one-to-one or one-to-group (Sangha) format from a skilled teacher. We encourage you to participate in our weekly Sanghas.
+
+### References
+
+[^1]: [Lookin' for Love by Johnny Lee](https://www.youtube.com/watch?v=8mxIHL6d-RM)
