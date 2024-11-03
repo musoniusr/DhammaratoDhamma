@@ -3,7 +3,7 @@ layout: post
 title: "Now Is Still Here Shamil 1 06 06 24"
 author: Dhammarato
 categories: [transcripts, Dhamma Talk, One on One Talk, Introduction to Buddha Dhamma]
-tags: [transcripts, present moment, now is still here, making decisions, parental expectations, heaven, Philadelphia Cream Cheese, martial arts, bedtime practice, looking vs thinking, handling emotions, unwholesome thoughts, state of mind, remembering practice, all stick no carrot, everything is already okay, temporary feelings, mindful awareness, original sin, handling sadness, liberation, investigating reality]
+tags: [transcripts, present moment, now is still here, making decisions, parental expectations, heaven, Philadelphia Cream Cheese commercials, martial arts, bedtime practice, looking vs thinking, handling emotions, unwholesome thoughts, state of mind, remembering practice, all stick no carrot, everything is already okay, temporary feelings, mindful awareness, original sin, handling sadness, liberation, investigating reality]
 image: "https://i.ytimg.com/vi/Xg7QrzqTghQ/maxresdefault.jpg"
 description: "Transcript of June 06, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-06-06
