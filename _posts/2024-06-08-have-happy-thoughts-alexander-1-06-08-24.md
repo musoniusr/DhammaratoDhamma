@@ -177,7 +177,7 @@ toc: true
 
 **Dhammarato:** All right, so we'll check you later.
 
-**Alexander:** All right. Nice to meet you, Don Morato.
+**Alexander:** All right. Nice to meet you, Dhammarato.
 
 **Dhammarato:** I hope that we can become friends. Yes.
 
