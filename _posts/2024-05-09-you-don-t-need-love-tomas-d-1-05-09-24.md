@@ -555,7 +555,7 @@ There is nothing like direct transmission of the teachings in a one-to-one or on
 
 ### References
 
-[^1]: "He proclaims a teaching that is good in the beginning, good in the middle, and good in the end, meaningful and well-phrased. And he reveals a spiritual practice that’s entirely complete and pure." see [MN 27: Cūḷahatthipadopamasutta—Bhikkhu Sujato-The Shorter Simile of the Elephant’s Footprint](https://suttacentral.net/mn27/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin) and [MN 91: Brahmāyusutta—Bhikkhu Sujato - With Brahmāyu](https://suttacentral.net/mn91/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin)
+[^1]: "He proclaims a teaching that is good in the beginning, good in the middle, and good in the end, meaningful and well-phrased. And he reveals a spiritual practice that’s entirely complete and pure." see [MN 27: Cūḷahatthipadopamasutta—Bhikkhu Sujato-The Shorter Simile of the Elephant’s Footprint](https://suttacentral.net/mn27/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin) and [MN 91: Brahmāyusutta—Bhikkhu Sujato - With Brahmāyu](https://suttacentral.net/mn91/en/sujato?lang=en&layout=plain&reference=none&notes=asterisk&highlight=false&script=latin) and [Why is Dhamma good in the beginning,middle,End?](https://discourse.suttacentral.net/t/why-is-dhamma-good-in-the-beginning-middle-end/27248)
 
 [^2]: Dhammarato has been working on coding the Open Sangha website during the time of this recording and he was a programmer before he became a monk, so I assume he is referencing a function like in computer programming.
 
