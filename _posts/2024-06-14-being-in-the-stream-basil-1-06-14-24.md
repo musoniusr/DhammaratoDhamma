@@ -3,7 +3,7 @@ layout: post
 title: "Being in the Stream Basil 1 06 14 24"
 author: Dhammarato
 categories: [transcripts, Dhamma Talk, One on One Talk, Introduction to Buddha Dhamma]
-tags: [transcripts]
+tags: [transcripts, dukkha dukkha-nirodha, victim mentality, stream entry, Buddha Dhamma, dissatisfaction, satisfaction, practice happiness, present moment awareness, cultural conditioning, meditation practice, mindfulness, sati, Four Noble Truths, being in the stream, transformation, short practice sessions, daily practice, seclusion, mental attitude]
 image: "https://i.ytimg.com/vi/_ov0Gpl9jbo/maxresdefault.jpg"
 description: "Transcript of June 14, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-06-14
