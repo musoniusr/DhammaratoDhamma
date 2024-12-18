@@ -1,4 +1,4 @@
-Speaker A---
+---
 layout: post
 title: "Foundations of the Practice Rupesh 1 and Erik Z 4 1 1 20"
 author: Dhammarato
