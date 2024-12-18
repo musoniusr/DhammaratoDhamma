@@ -33,13 +33,13 @@ toc: true
 
 **Dhammarato:** Well, hello, Eric.
 
-**Speaker B:** Hi, Dhammarato. Hello. Hi, Eric. I'm Rupes. Nice to meet you, Rupes. Nice to meet you, Eric.
+**Speaker B:** Hi, Dhammarato. Hello. Hi, Eric. I'm Rupesh. Nice to meet you, Rupesh. Nice to meet you, Eric.
 
-**Dhammarato:** How do you say your name, Rupes? Rufus.
+**Dhammarato:** How do you say your name, Rupesh? 
 
 **Speaker B:** Yes.
 
-**Dhammarato:** Okay. Rufus is just a new caller, and this is the first time that he's called a few minutes ago, Eric. And so he was describing some experience that he had had with Goenka. He'd done Goenka retreat. And so, Rufus, I have. I have done quite a lot with Goenka.
+**Dhammarato:** Okay. Rupesh is just a new caller, and this is the first time that he's called a few minutes ago, Eric. And so he was describing some experience that he had had with Goenka. He'd done Goenka retreat. And so, Rupesh, I have. I have done quite a lot with Goenka.
 
 **Speaker B:** Oh, really?
 
@@ -200,13 +200,13 @@ This talk centers on a practical, natural approach to *anapanasati* (mindfulness
 
 - **[0:09-0:27] Introduction and Caller Background**
   
-  - Dhammarato greets the callers, Eric and Rufus.
-  - Rufus describes his past experience with Goenka retreats and his dissatisfaction with their repetitive nature, leading him to study with Ajahn Buddhadasa.
+  - Dhammarato greets the callers, Eric and Rupesh.
+  - Rupesh describes his past experience with Goenka retreats and his dissatisfaction with their repetitive nature, leading him to study with Ajahn Buddhadasa.
 - **[0:27-3:21] Goenka vs. Buddhadasa and Anapanasati**
   
-  - Rufus explains that after being in a Goenka retreat, he went to Bodhgaya and stayed at a Thai temple (later found to be associated with Buddhadasa).
+  - Rupesh explains that after being in a Goenka retreat, he went to Bodhgaya and stayed at a Thai temple (later found to be associated with Buddhadasa).
   - He met a monk from Wat Suan Mok, a student of Buddhadasa, who recommended Buddhadasa to him.
-  - Through Buddhadasa, Rufus gained a "completely different and more complete understanding" of *anapanasati*.
+  - Through Buddhadasa, Rupesh gained a "completely different and more complete understanding" of *anapanasati*.
   - Dhammarato explains that Goenka's system focuses on mindfulness of breathing for the first three days, then body scanning. Dhammarato notes that this is a two-step approach that goes directly into step three and is not a "right way" of looking at the first step.
 - **[3:21-5:27] Body of Breath**
   
@@ -226,7 +226,7 @@ This talk centers on a practical, natural approach to *anapanasati* (mindfulness
   - He says this is a problem in Sri Lanka and Burma (and parts of Nepal) with the *Visuddhimagga*.
 - **[9:09-10:59] Goenka's Connection to Buddhadasa**
   
-  - Dhammarato asks Rufus where he took the Goenka retreat.
+  - Dhammarato asks Rupesh where he took the Goenka retreat.
   - He mentions a funny side issue about students at Goenka retreats coming to Wat Suan Mok for Thai language retreats before heading out to Goenka retreats.
   - He says there's a strong connection between the Goenka retreat centers and Buddhadasa in Thailand.
   - He notes that Westerners think Goenka "stands on his own."
@@ -242,11 +242,11 @@ This talk centers on a practical, natural approach to *anapanasati* (mindfulness
   - The "natural method" means "anything goes" and that "anything that comes up needs to be dealt with right here right now."
   - The "organized method" means one must follow the steps, regardless of what else is going on in their life.
   - He states this is why students have trouble with Goenka retreats because the practice "is not suited to what the student needs."
-  - Rufus describes how during his Goenka retreat he experienced a build up of tension while doing the organized body scan.
-- **[14:04-17:11] Examining Rufus' Tension**
+  - Rupesh describes how during his Goenka retreat he experienced a build up of tension while doing the organized body scan.
+- **[14:04-17:11] Examining Rupesh' Tension**
   
-  - Dhammarato asks if Rufus' tension was caused by the body scanning, an effect of starting meditation in general, or if it was always there.
-  - Rufus says he had meditated before without such tension.
+  - Dhammarato asks if Rupesh' tension was caused by the body scanning, an effect of starting meditation in general, or if it was always there.
+  - Rupesh says he had meditated before without such tension.
   - He describes how the Goenka instructions emphasized working "diligently as hard as you can," leading him to feel like he was piercing his body with his awareness.
 - **[17:11-19:55] Anapanasati, Four Noble Truths, and Right Effort**
   
@@ -381,19 +381,19 @@ This talk centers on a practical, natural approach to *anapanasati* (mindfulness
   - He says by turning the light on we understand that we make the problem, and that we can fix it, which is the path to fixing the problem that we call dissatisfaction.
   - He states that this leads to the knowledge and vision of what the path is and what the path is not.
   - He states that the path brings the mind to a state of unity or *samadhi*, and that *samadhi* means unifying the mind, rather than concentration.
-  - Rufus describes that he has had experiences where he is at unity and not resisting, and his consciousness expands.
+  - Rupesh describes that he has had experiences where he is at unity and not resisting, and his consciousness expands.
 - **[62:35-63:35] Keeping the Nice, Not Wanting More**
   
   - Dhammarato says the goal is to watch the states and experience them, but not want them, as this leads to dissatisfaction.
   - He says the point is to sit in the satisfaction without wanting it to be better.
 - **[63:35-64:31] Summary and Key Takeaways**
   
-  - He summarizes the conversation as having provided ways to add to Rufus' practice, including learning to be a "winner," remembering, gladdening the mind, and controlling the breath.
+  - He summarizes the conversation as having provided ways to add to Rupesh' practice, including learning to be a "winner," remembering, gladdening the mind, and controlling the breath.
     - He says a key element is to breathe deeply so that the body is oxygenated and tingles.
 - **[64:31-67:14] Question About Deep Samadhi**
   
-  - Rufus tells a story about sages who enter deep *samadhi* and leave their body.
-  - Rufus says he once meditated for three and a half days and felt as if he was rejecting his body, and as if something was leaving it.
+  - Rupesh tells a story about sages who enter deep *samadhi* and leave their body.
+  - Rupesh says he once meditated for three and a half days and felt as if he was rejecting his body, and as if something was leaving it.
   - He states that afterwards his body felt tight.
   - Dhammarato suggests working with relaxation so that tightness does not build up.
   - He says the tightness is already there and that students will tense up if not mindful to stay relaxed.
