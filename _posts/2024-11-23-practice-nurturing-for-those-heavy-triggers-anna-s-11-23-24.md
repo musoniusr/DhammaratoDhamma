@@ -32,7 +32,7 @@ toc: true
 
 **Anna:** Mm.
 
-**Dhammarato:** All right. And so going back to the nurturing is the right way to do it. Is. And you heard me use a lot of language that, that has a nurturing quality to it. Like everything is okay. The kind of stuff that you would tell to an input.
+**Dhammarato:** All right. And so going back to the nurturing is the right way to do it. Is. And you heard me use a lot of language that, that has a nurturing quality to it. Like everything is okay. The kind of stuff that you would tell to an infant.
 
 **Anna:** Yeah, it's your baby. Okay.
 
