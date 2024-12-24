@@ -120,7 +120,7 @@ toc: true
 
 **Anna:** Yeah. Okay. Yeah. That's a good way to see it.
 
-**Dhammarato:** Yeah, I've been there, I've done that. Okay. This is actually coming from Sutta number 22, okay. Where the Buddha talks about it in the sense. For the first thing he says is both formally and now, I only teach one thing, and that is dukkha duka naroda. I want to teach one thing, dukkha duka naroda. Okay? In Sutra number 12, the lions roar. We have that very, very famous line that even the monks memorize and say, you've heard it before it. Okay. Etc. Now that point in that sutta is that the Buddha says, how can anyone believe that just by coming to the Four Noble Truths. The Four Noble Truths, because the Buddha came up with the Four Noble Truths does not necessarily make him a knower of the world, doesn't make him super duper special or anything. And so the people's praise for him is misguided.
+**Dhammarato:** Yeah, I've been there, I've done that. Okay. This is actually coming from Sutta number 22, okay. Where the Buddha talks about it in the sense. For the first thing he says is both formally and now, I only teach one thing, and that is dukkha duka naroda. I want to teach one thing, dukkha duka naroda. Okay? In sutta number 12, the lions roar. We have that very, very famous line that even the monks memorize and say, you've heard it before it. Okay. Etc. Now that point in that sutta is that the Buddha says, how can anyone believe that just by coming to the Four Noble Truths. The Four Noble Truths, because the Buddha came up with the Four Noble Truths does not necessarily make him a knower of the world, doesn't make him super duper special or anything. And so the people's praise for him is misguided.
 
 **Anna:** Okay?
 
@@ -176,7 +176,7 @@ toc: true
 
 **Anna:** Okay, I. I didn't really get what you said about the Sutta of Etpiso and the fact that the Buddha didn't like.
 
-**Dhammarato:** Yes, it's in Sutra number 12. I invite you to read it carefully where he says, how can people get the Four Noble Truths and And believe this about me, because that's all noble truths. He does not. He does not teach that he's a seer of the world. He does not teach that he's a trainer of all people, Davis. And. And men. He doesn't claim that. He only claims that he teaches just one thing, and that's the Four Noble Truths.
+**Dhammarato:** Yes, it's in sutta number 12. I invite you to read it carefully where he says, how can people get the Four Noble Truths and And believe this about me, because that's all noble truths. He does not. He does not teach that he's a seer of the world. He does not teach that he's a trainer of all people, Davis. And. And men. He doesn't claim that. He only claims that he teaches just one thing, and that's the Four Noble Truths.
 
 **Anna:** Okay, okay.
 
@@ -330,9 +330,9 @@ This Dhamma talk centers on the practice of **nurturing** as opposed to being **
   - **Analogy:** Arrogant or racist people are likened to "little tyrants" who "got away with it" as children.
   - **Practical Application:** Reacting with "been there, done that" when encountering such behavior, instead of critical judgment.
   - **Key Concept:** This approach intends to neutralize negative reactions and creates self-soothing.
-- **[14:35-17:34] Sutra 22 & Equanimity (Been There Done That, Continued):**
+- **[14:35-17:34] sutta 22 & Equanimity (Been There Done That, Continued):**
   
-  - **Specific Teaching:** Sutra 22 is referenced where the Buddha teaches just one thing, that is, Dukkha (suffering, unsatisfactoriness). This supports the idea of not being overly attached to the praise or criticisms of the world.
+  - **Specific Teaching:** sutta 22 is referenced where the Buddha teaches just one thing, that is, Dukkha (suffering, unsatisfactoriness). This supports the idea of not being overly attached to the praise or criticisms of the world.
     - **Analogy:** The speaker uses his personal history with bullies as an example of getting used to negative behaviors.
     - **Interpretation:** Buddha's equanimity to praise and criticism stems from recognizing their impermanence and history.
   - **Key Concept:** "Dejection of heart" (emotional upset) from others' actions should be overcome by this equanimity.
@@ -359,9 +359,9 @@ This Dhamma talk centers on the practice of **nurturing** as opposed to being **
   
   - **Practical Application:** Continues emphasizing the need for playful practice in the face of criticism and negativity.
     - **Interpretation:** The "C minus" approach to a racist person's actions, reframes them as unskilled. This helps create a humorous tone that is nurturing.
-- **[23:44-24:41] Sutra 12 & the Four Noble Truths:**
+- **[23:44-24:41] sutta 12 & the Four Noble Truths:**
   
-  - **Specific Teaching:** The speaker clarifies his earlier mention of Sutra 12 and its importance in the teachings.
+  - **Specific Teaching:** The speaker clarifies his earlier mention of sutta 12 and its importance in the teachings.
   - **Specific Teaching:** He notes the Buddha only teaches Dukkha, the Four Noble Truths, and not that he is a seer of the world or a trainer of Gods and humans.
   - **Interpretation:** The speaker uses this to emphasize that the Buddha only focuses on liberating from suffering, not self-aggrandizement.
   - **Key Concept:** This point is used to challenge overcomplication in spiritual practice and encourages an approach of simplicity.
