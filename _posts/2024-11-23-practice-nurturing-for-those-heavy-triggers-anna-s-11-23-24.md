@@ -120,7 +120,7 @@ toc: true
 
 **Anna:** Yeah. Okay. Yeah. That's a good way to see it.
 
-**Dhammarato:** Yeah, I've been there, I've done that. Okay. This is actually coming from Sutta number 22, okay. Where the Buddha talks about it in the sense. For the first thing he says is both formally and now, I only teach one thing, and that is dukkha duka naroda. I want to teach one thing, dukkha duka naroda. Okay? In sutta number 12, the lions roar. We have that very, very famous line that even the monks memorize and say, you've heard it before it. Okay. Etc. Now that point in that sutta is that the Buddha says, how can anyone believe that just by coming to the Four Noble Truths. The Four Noble Truths, because the Buddha came up with the Four Noble Truths does not necessarily make him a knower of the world, doesn't make him super duper special or anything. And so the people's praise for him is misguided.
+**Dhammarato:** Yeah, I've been there, I've done that. Okay. This is actually coming from Sutta number 22, okay. Where the Buddha talks about it in the sense. For the first thing he says is both formally and now, I only teach one thing, and that is dukkha dukkha nirodha. I want to teach one thing, dukkha duka naroda. Okay? In sutta number 12, the lions roar. We have that very, very famous line that even the monks memorize and say, you've heard it before it. Okay. Etc. Now that point in that sutta is that the Buddha says, how can anyone believe that just by coming to the Four Noble Truths. The Four Noble Truths, because the Buddha came up with the Four Noble Truths does not necessarily make him a knower of the world, doesn't make him super duper special or anything. And so the people's praise for him is misguided.
 
 **Anna:** Okay?
 
