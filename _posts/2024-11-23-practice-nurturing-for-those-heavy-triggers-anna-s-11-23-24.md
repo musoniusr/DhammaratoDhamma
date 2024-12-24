@@ -48,15 +48,15 @@ toc: true
 
 **Anna:** Yes.
 
-**Dhammarato:** Okay, show. Let us redefine that in the sense of nurturing is more natural, but critical is the norm. That's the normal. All right. And so there's ways of retraining ourselves to be nurturing. Okay. You have now probably heard about when Metta meditation is taught in Vipassana, they teach it in the sense of don't try to have meta for your worst enemy. Have meta for your close friend to have nurturing feelings towards your close friend. Because we will naturally be or normally be critical of our enemy.
+**Dhammarato:** Okay, show. Let us redefine that in the sense of nurturing is more natural, but critical is the norm. That's the normal. All right. And so there's ways of retraining ourselves to be nurturing. Okay. You have now probably heard about when Metta meditation is taught in Vipassana, they teach it in the sense of don't try to have metta for your worst enemy. Have metta for your close friend to have nurturing feelings towards your close friend. Because we will naturally be or normally be critical of our enemy.
 
-**Anna:** Yeah, because it's easier to have meta to our close friend.
+**Anna:** Yeah, because it's easier to have metta to our close friend.
 
 **Dhammarato:** Right, Right. Okay. So in your case, now what we can do is we can actually practice thinking about those things that trigger you naturally start thinking about that which you would consider an enemy and have nurturing thoughts towards it. In other words, we're going to start doing Annapadasati, having wholesome thoughts for those unwholesome things.
 
 **Anna:** Yes.
 
-**Dhammarato:** All right. And in fact, we have the. We have words like myra or Devil and things like that. Okay. And also like the two year old tyrant, we can still nurture that tyrant. We can still nurture that critical part. We can nurture our enemy, but we have to practice doing that.
+**Dhammarato:** All right. And in fact, we have the. We have words like Mara or Devil and things like that. Okay. And also like the two year old tyrant, we can still nurture that tyrant. We can still nurture that critical part. We can nurture our enemy, but we have to practice doing that.
 
 **Anna:** Okay.
 
@@ -64,9 +64,9 @@ toc: true
 
 **Anna:** All right.
 
-**Dhammarato:** So going back to the Metta, have learned to have not just meta for your friends, but also learn to have meta for your enemy or in the language we're using, nurturing.
+**Dhammarato:** So going back to the Metta, have learned to have not just metta for your friends, but also learn to have metta for your enemy or in the language we're using, nurturing.
 
-**Anna:** Yes. I think the, the thing I, I need to practice meta towards are not people. It's mostly behaviors.
+**Anna:** Yes. I think the, the thing I, I need to practice metta towards are not people. It's mostly behaviors.
 
 **Dhammarato:** Mm.
 
@@ -138,7 +138,7 @@ toc: true
 
 **Dhammarato:** Go after and give method to those enemies of yours. We call them enemies, but in fact, they don't even think that they're enemies. They're just being naturally racist.
 
-**Anna:** So I get the point about telling myself, I've been there, done that. I can do it again, no problem. Problem. Because it, it relieve, it relieve my mind and it relieved the anger. But I don't really understand how it would transform into meta. Because when you say you don't, you.
+**Anna:** So I get the point about telling myself, I've been there, done that. I can do it again, no problem. Problem. Because it, it relieve, it relieve my mind and it relieved the anger. But I don't really understand how it would transform into metta. Because when you say you don't, you.
 
 **Dhammarato:** Don'T need to with yourself. You nurture yourself when the racist is there and say, he may be racist, but I'm okay, he can't touch me. I'm all right, not a worry in the world. I feel good, in fact. And after you learn to feel good in the face of the racist in your mind, then you can learn to feel good in the face of the racist in actuality, this is something we have to practice. So go get a racist, go get his photo even and practice. I'm okay, he can't touch me. He can revile me all he wants and he can't bother me. He can't touch me. I'm okay. And so that's the time you nurture yourself first. And if you get really good at it, you can just nurture him and tease him.
 
