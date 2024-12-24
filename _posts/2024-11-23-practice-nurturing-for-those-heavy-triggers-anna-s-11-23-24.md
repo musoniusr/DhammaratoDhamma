@@ -120,15 +120,15 @@ toc: true
 
 **Anna:** Yeah. Okay. Yeah. That's a good way to see it.
 
-**Dhammarato:** Yeah, I've been there, I've done that. Okay. This is actually coming from Sutta number 22, okay. Where the Buddha talks about it in the sense. For the first thing he says is both formally and now, I only teach one thing, and that is dukkha dukkha nirodha. I want to teach one thing, dukkha duka naroda. Okay? In sutta number 12, the lions roar. We have that very, very famous line that even the monks memorize and say, you've heard it before it. Okay. Etc. Now that point in that sutta is that the Buddha says, how can anyone believe that just by coming to the Four Noble Truths. The Four Noble Truths, because the Buddha came up with the Four Noble Truths does not necessarily make him a knower of the world, doesn't make him super duper special or anything. And so the people's praise for him is misguided.
+**Dhammarato:** Yeah, I've been there, I've done that. Okay. This is actually coming from Sutta number 22, okay. Where the Buddha talks about it in the sense. For the first thing he says is both formally and now, I only teach one thing, and that is dukkha dukkha nirodha. I want to teach one thing, dukkha dukkha nirodha. Okay? In sutta number 12, the lions roar. We have that very, very famous line that even the monks memorize and say, you've heard it before it. Okay. Etc. Now that point in that sutta is that the Buddha says, how can anyone believe that just by coming to the Four Noble Truths. The Four Noble Truths, because the Buddha came up with the Four Noble Truths does not necessarily make him a knower of the world, doesn't make him super duper special or anything. And so the people's praise for him is misguided.
 
 **Anna:** Okay?
 
-**Dhammarato:** The praise for him, the Buddha does not regard that. He disregards it. On the other side, when someone comes to revile him, he does not have any dejection of heart, so there's no elation. Of heart when somebody reveres him, and no digestion of heart when he is reviled. And then he says, why is that true? Basically because he's talking about it. It's happened before. I've gotten used to it. And the phrase that I use is been there, done that. Okay, so when someone is arrogant to you, you could just say to yourself, oh, been there, done that. I've been around arrogance before. I survived quite well. No need to have dejection of heart because they're arrogant. No need to have dejection of heart because he's racist against you. Because how many times throughout your whole life have you been around racist? Why do you have to be critical to them? Why can't you learn to be nurturing? Because, I mean, after all, it's not going to stop. There's no reason to be critical of racist. That's their, that's their training. But you can retrain yourself. Instead of being critical of them, you can say, oh, well, you're not going to bother me. I've been around racists before. Been there, done that.
+**Dhammarato:** The praise for him, the Buddha does not regard that. He disregards it. On the other side, when someone comes to revile him, he does not have any dejection of heart, so there's no elation. Of heart when somebody reveres him, and no dejection of heart when he is reviled. And then he says, why is that true? Basically because he's talking about it. It's happened before. I've gotten used to it. And the phrase that I use is "been there, done that" Okay, so when someone is arrogant to you, you could just say to yourself, "oh, been there, done that." I've been around arrogance before. I survived quite well. No need to have dejection of heart because they're arrogant. No need to have dejection of heart because he's racist against you. Because how many times throughout your whole life have you been around racist? Why do you have to be critical to them? Why can't you learn to be nurturing? Because, I mean, after all, it's not going to stop. There's no reason to be critical of racist. That's their, that's their training. But you can retrain yourself. Instead of being critical of them, you can say, "oh, well, you're not going to bother me. I've been around racists before. Been there, done that."
 
 **Anna:** Yeah, well, okay, yeah, you have to.
 
-**Dhammarato:** Practice this off on your own. You need to go into seclusion and then bring that racist to mind and chuckle and say, ha ha, you can be racist all you want to and you're not going to get to me.
+**Dhammarato:** Practice this off on your own. You need to go into seclusion and then bring that racist to mind and chuckle and say, "ha ha, you can be racist all you want to and you're not going to get to me."
 
 **Anna:** Okay, that's interesting. Yeah, very interesting. A new training. Great.
 
@@ -136,9 +136,9 @@ toc: true
 
 **Anna:** Yeah, very good.
 
-**Dhammarato:** Go after and give method to those enemies of yours. We call them enemies, but in fact, they don't even think that they're enemies. They're just being naturally racist.
+**Dhammarato:** Go after and give metta to those enemies of yours. We call them enemies, but in fact, they don't even think that they're enemies. They're just being naturally racist.
 
-**Anna:** So I get the point about telling myself, I've been there, done that. I can do it again, no problem. Problem. Because it, it relieve, it relieve my mind and it relieved the anger. But I don't really understand how it would transform into metta. Because when you say you don't, you.
+**Anna:** So I get the point about telling myself, "I've been there, done that." I can do it again, no problem. Problem. Because it, it relieve, it relieve my mind and it relieved the anger. But I don't really understand how it would transform into metta. Because when you say you don't, you.
 
 **Dhammarato:** Don'T need to with yourself. You nurture yourself when the racist is there and say, he may be racist, but I'm okay, he can't touch me. I'm all right, not a worry in the world. I feel good, in fact. And after you learn to feel good in the face of the racist in your mind, then you can learn to feel good in the face of the racist in actuality, this is something we have to practice. So go get a racist, go get his photo even and practice. I'm okay, he can't touch me. He can revile me all he wants and he can't bother me. He can't touch me. I'm okay. And so that's the time you nurture yourself first. And if you get really good at it, you can just nurture him and tease him.
 
@@ -148,7 +148,7 @@ toc: true
 
 **Anna:** Okay, yeah, that would be fun. I would love to get there, you know?
 
-**Dhammarato:** Yeah. Nurture his racism. Wow. I can tell you what. I know where people are that can teach you how to be even a dirtier low class racist than you are now. You're not even halfway good enough to bother me yet. Okay, okay. So we could play with this. We can Gucci, Gucci goo with this. We can nurture it. So practice well. Yep, practice well. I can handle this. Practice well. This racist can't get to me.
+**Dhammarato:** Yeah. Nurture his racism. Wow. I can tell you what. I know where people are that can teach you how to be even a dirtier low class racist than you are now. You're not even halfway good enough to bother me yet. Okay, okay. So we could play with this. We can coochie coochie coo with this. We can nurture it. So practice well. Yep, practice well. I can handle this. Practice well. This racist can't get to me.
 
 **Anna:** Yeah, okay. Yeah. Okay, great.
 
@@ -160,7 +160,7 @@ toc: true
 
 **Anna:** Mm. Mm. Okay. Okay. I guess that's something that is. That has to be practiced. So.
 
-**Dhammarato:** It is something that has to be practiced. Why? Because you're well skilled at getting critical. So now practice to become well skilled at nurturing yourself so that you don't have any digestion of heart when they criticize or revile you.
+**Dhammarato:** It is something that has to be practiced. Why? Because you're well skilled at getting critical. So now practice to become well skilled at nurturing yourself so that you don't have any dejection of heart when they criticize or revile you.
 
 **Anna:** Okay.
 
@@ -184,7 +184,7 @@ toc: true
 
 **Anna:** Okay.
 
-**Dhammarato:** Yeah, it's surprising. It's really eye opening where the Buddha says that he only teaches the Four Noble Truths. He only teaches duka duka naroda. So how can people get this stuff about him being a God, the knower of the worlds, the trainer of Davies.
+**Dhammarato:** Yeah, it's surprising. It's really eye opening where the Buddha says that he only teaches the Four Noble Truths. He only teaches dukkha, dukkha nirodha. So how can people get this stuff about him being a God, the knower of the worlds, the trainer of Davies.
 
 **Anna:** Yeah, yeah, yeah. Okay, okay, okay, okay, okay, okay. Yeah, that's very simple. I love this. And, and, and yeah, about simplicity. Like when I talk, like, thank you to you and Michael to send me friends, you know, I can practice with.
 
@@ -216,7 +216,7 @@ toc: true
 
 **Anna:** Yeah, yeah. Okay. Yeah, yeah. Okay. And so your teacher was. Was saying that nibbana was available in every moment, right?
 
-**Dhammarato:** Yes. Bhikkhu Buddha Dasa says, In fact, here's a book that he's written. We've had it on our website called Nibbana for Everyone. Nirvana for everyone.
+**Dhammarato:** Yes. Bhikkhu Buddhaddasa says, In fact, here's a book that he's written. We've had it on our website called Nibbana for Everyone. Nirvana for everyone.
 
 **Anna:** Yeah. People don't believe in that.
 
@@ -224,7 +224,7 @@ toc: true
 
 **Anna:** Yes, yes, yes. They don't. They don't believe that it's not enough. Like just being happy in the moment and just repeating, repeating, and repeating is not enough. So I. So when I. When I talk to people, I'm trying to explain and practice, like repeating happiness with them, you know? But yeah. Yeah, okay, I guess. Is it the right way to. To practice with people?
 
-**Dhammarato:** Yes. Practice being happy even when they are miserable, Even when they want you to be miserable, even when they cross criticize you, even when they're racist with you. You can still be nurturing to yourself and happy that you don't show any elation of the heart or the ejection of the heart because of what they're saying.
+**Dhammarato:** Yes. Practice being happy even when they are miserable, Even when they want you to be miserable, even when they cross criticize you, even when they're racist with you. You can still be nurturing to yourself and happy that you don't show any elation of the heart or the dejection of the heart because of what they're saying.
 
 **Anna:** Yeah. Okay.
 
@@ -244,7 +244,7 @@ toc: true
 
 **Anna:** Yes, I can.
 
-**Dhammarato:** Yes, you can. Yes, you can. Play your sweet tune. Yes, you can. Smile. Even though that bully is there, even though that racist is there, you're still. Okay. This needs to be practiced. So you, little girl, take your little violin and you go practice. Practice your joy.
+**Dhammarato:** Yes, you can. Yes, you can. Play your sweet tune. Yes, you can. Smile. Even though that bully is there, even though that racist is there, you're still okay. This needs to be practiced. So you, little girl, take your little violin and you go practice. Practice your joy.
 
 **Anna:** Mmhmm. Okay.
 
