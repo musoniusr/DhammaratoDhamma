@@ -157,8 +157,6 @@ This Dhamma talk by Dhammarato contrasts the Buddhist approach to dealing with '
 
 ### Outline of this Dhamma Talk
 
-**
-
 - **[0:03-2:01] Introduction & Issue with CBT:** The talk begins with a student sharing their experience with CBT. They describe being asked to recall past anxieties, write about feelings and thoughts, which pulls them out of the present moment and makes them feel like "a loser." They feel it goes against the practice of 'sati'. The student asks if CBT and Buddhist teachings are compatible.
 - **[2:01-2:39] Psychology's Evolution & BF Skinner:** Dhammarato begins by saying that as psychology incorporates neuroscience, it will become more "noble." He notes that CBT stems from behavior modification and BF Skinner. This represents a step in the right direction by asserting that behavior can be changed and is not predetermined. He points out CBT acknowledges behavior is based on feelings.
 - **[2:39-6:17] History of Psychology & Industrial Psychology:** Dhammarato references Edward Bernays and the documentary "Century of the Self" on how psychology has impacted Western society, creating "industrial psychology" - which is psychology for industrialists to improve work, which is now linked to prisons, veterans, etc. He explains that CBT is designed to change behavior, therefore feelings, and that this approach is "outside in".
