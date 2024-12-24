@@ -153,7 +153,7 @@ toc: true
 
 ### Summary of this Dhamma Talk
 
-This Dhamma talk by Dhammarato contrasts the Buddhist approach to dealing with 'dukkha' (dissatisfaction) with that of Cognitive Behavioral Therapy (CBT). He emphasizes the importance of direct experience in the present moment through 'sati' (mindfulness), particularly focusing on anapanasati (mindfulness of breathing). Dhammarato critiques the tendency of CBT to dwell on past traumas ('psychological archaeology'), which he argues can reinforce negative feelings and habits. He advocates for cultivating 'wholesome' thoughts and feelings, recognizing subtle dissatisfaction, and consciously choosing to let go of unwholesome experiences rather than engaging with them directly. Ultimately, the talk promotes the understanding that we can choose how to feel in the present moment, independent of past experiences.
+This Dhamma talk by Dhammarato contrasts the Buddhist approach to dealing with 'dukkha' (dissatisfaction) with that of Cognitive Behavioral Therapy (CBT). He emphasizes the importance of direct experience in the present moment through 'sati' (remembering), particularly focusing on anapanasati (mindfulness of breathing). Dhammarato critiques the tendency of CBT to dwell on past traumas ('psychological archaeology'), which he argues can reinforce negative feelings and habits. He advocates for cultivating 'wholesome' thoughts and feelings, recognizing subtle dissatisfaction, and consciously choosing to let go of unwholesome experiences rather than engaging with them directly. Ultimately, the talk promotes the understanding that we can choose how to feel in the present moment, independent of past experiences.
 
 ### Outline of this Dhamma Talk
 
