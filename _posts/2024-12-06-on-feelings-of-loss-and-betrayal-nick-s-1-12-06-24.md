@@ -99,7 +99,7 @@ toc: true
 
 **Nick:** Yes.
 
-**Dhammarato:** All right. Have you heard the song? Have you heard the song? I got along without her before I met her. I can get along without her now, like we were talking about. You can get along without her. You got along without her before you met her, you can get along without her now. You didn't feel this bad without her before you met her. You didn't even know her then. So why are you feeling bad now? You didn't have her then, you don't have her now. What's the difference? The only difference is, is your bad feelings.
+**Dhammarato:** All right. Have you heard the song? Have you heard the song? I got along without her before I met her. I can get along without her now [^1], like we were talking about. You can get along without her. You got along without her before you met her, you can get along without her now. You didn't feel this bad without her before you met her. You didn't even know her then. So why are you feeling bad now? You didn't have her then, you don't have her now. What's the difference? The only difference is, is your bad feelings.
 
 **Nick:** And the memories.
 
@@ -117,7 +117,7 @@ toc: true
 
 **Dhammarato:** That's. That's what I've been doing with you. That's what I've been doing with you is helping you to gladden the mind. You can do without her. And you need to say that to yourself rather than going and having those feelings, oh, I saw her then and she looked really sexy and I wish I had her now. And you don't. And oh, I like that dish she cooked me and it was delicious and she served it with a smile and now she don't.
 
-**Nick:** Well, that ever happened.
+**Nick:** Well, that never happened.
 
 **Dhammarato:** How many times do you have to remember recognizing that those memories hurt? And they hurt because you want. You want something you don't have. And if you can investigate it to the point of seeing that you want her and you can't have her, that's liberating because otherwise you're stuck in. I want her. I want her. I'm investigating how bad I want her and I still want her. And I investigate. That's not freedom. In fact, that's stupidity. Worse still, you can actually call it the Mahasi method.
 
@@ -241,13 +241,13 @@ toc: true
 
 **Dhammarato:** Well, think about me. Am I not beautiful?
 
-**Nick:** I was thinking about you. That's what I called.
+**Nick:** I was thinking about you. That's why I called.
 
 **Dhammarato:** Depends upon which political party you're in. But you can think about Putin, you can think about Trump.
 
 **Nick:** Worst case, Donald Duck.
 
-**Dhammarato:** Because you're a whole lot better off than Putin right now. I mean, all you've lost is just a girl. He's lost an empire. You're a whole lot better off than Donald Trump. You've only lost a girl. He's lost his mind. You're a whole lot better off than they are. And. And also you can think about me because I've lost everything. I've lost all my bad people. I've lost my empire. I've lost my motorcycle. I've lost high water heater. I've lost 30 women. Legend 630 is really conservative.
+**Dhammarato:** Because you're a whole lot better off than Putin right now. I mean, all you've lost is just a girl. He's lost an empire. You're a whole lot better off than Donald Trump. You've only lost a girl. He's lost his mind. You're a whole lot better off than they are. And. And also you can think about me because I've lost everything. I've lost all my bad people. I've lost my empire. I've lost my motorcycle. I've lost my hot water heater. I've lost 30 women. 30 is really conservative.
 
 **Nick:** Yeah, I feel like that was just. You're just trying to be nice.
 
@@ -276,11 +276,121 @@ toc: true
 **Nick:** See you.
 
 
+### Summary of this Dhamma Talk
+
+In this Dhamma talk, Dhammarato addresses the emotional turmoil and dissatisfaction (dukkha) that arises from the end of a romantic relationship. The speaker is struggling with feelings of betrayal, loss, and recurring memories of his former partner. Dhammarato guides him through a process of understanding and overcoming these feelings by emphasizing the impermanence of all things, the futility of clinging to the past, and the importance of cultivating wholesome thoughts to replace painful memories.
+
+Dhammarato uses several metaphors and analogies, such as the "sour grapes" story, the "dog turd" analogy, and the idea of "piling hamburgers" to illustrate how to deal with negative thoughts and emotions. He also introduces the concept of "gladdening the mind" by focusing on positive thoughts and memories, rather than dwelling on what has been lost.
+
+The talk is practical and direct, offering specific techniques for managing emotional pain, such as substituting negative thoughts with positive ones, avoiding the "investigation" of painful memories, and practicing mindfulness to stay present. Dhammarato emphasizes that the key to overcoming dissatisfaction is to accept the reality of impermanence and to focus on the present moment.
+
+
 ### Outline of this Dhamma Talk
 
+#### **1. Introduction and Context (0:00 - 1:00)**
+
+- The speaker expresses confusion about recording and begins discussing the concept of betrayal in relationships, particularly divorce.
+- Dhammarato introduces the idea that **nothing is permanent**, and change is inevitable.
+
+#### **2. The Nature of Change and Dissatisfaction (1:00 - 2:00)**
+
+- Dhammarato explains that **dissatisfaction (dukkha)** arises from the inability to accept change.
+- The speaker shares his experience of being left by his partner, who initially claimed she wanted to be alone but later moved on with someone else.
+
+#### **3. The Problem of Clinging to the Past (2:00 - 5:00)**
+
+- Dhammarato discusses how **clinging to the past** and **recurring memories** cause emotional pain.
+- The speaker admits to feeling trapped in a cycle of negative thoughts and flashbacks.
+
+#### **4. The Illusion of Ownership and Control (5:00 - 7:00)**
+
+- Dhammarato challenges the speaker's belief that he ever truly "had" his partner, emphasizing that **no one owns or controls another person**.
+- He uses the analogy of a 75-year marriage ending in death to illustrate that loss is inevitable, and it’s better to accept it early.
+
+#### **5. The Importance of Gladdening the Mind (7:00 - 10:00)**
+
+- Dhammarato introduces the concept of **gladdening the mind** by focusing on positive thoughts and memories.
+- He suggests replacing painful memories with the song, *"I got along without her before I met her, I can get along without her now."* [^1]
+
+#### **6. The Danger of Investigating Painful Memories (10:00 - 13:00)**
+
+- Dhammarato warns against **over-investigating** painful memories, comparing it to dissecting a dog turd.
+- He explains that the only investigation needed is to recognize that certain thoughts and memories are painful, and then to let them go.
+
+#### **7. The Sour Grapes Metaphor (13:00 - 17:00)**
+
+- Dhammarato uses the **sour grapes** story to illustrate how we often rationalize our losses by devaluing what we can’t have.
+- He encourages the speaker to accept that he doesn’t need his former partner and to focus on the relief of not having to deal with the relationship anymore.
+
+#### **8. Practical Techniques for Managing Thoughts (17:00 - 22:00)**
+
+- Dhammarato suggests **diversion** and **avoidance** techniques to manage negative thoughts.
+- He advises the speaker to "pile hamburgers" (wholesome thoughts) on top of negative thoughts to smother them.
+
+#### **9. The Importance of Seclusion and Mindfulness (22:00 - 25:00)**
+
+- Dhammarato recommends taking time for **seclusion** and **mindfulness** to break the cycle of negative thinking.
+- He suggests going to the forest or camping to get away from distractions and focus on the present moment.
+
+#### **10. The Impermanence of Good and Bad Memories (25:00 - 28:00)**
+
+- Dhammarato discusses how even **good memories** can lead to dissatisfaction because they are impermanent.
+- He shares his own experience of losing a motorcycle and a hot water heater, emphasizing that he is better off without them.
+
+#### **11. Conclusion and Final Advice (28:00 - 33:00)**
+
+- Dhammarato reiterates the importance of **not dwelling on the past** and focusing on the present moment.
+- He encourages the speaker to practice gladdening the mind and to remember that he doesn’t need his former partner to be happy.
 
 
 ### How to Practice
+
+- **Accept Impermanence**: Recognize that **everything changes**, and clinging to the past leads to dissatisfaction. Practice letting go of what you cannot control.
+  
+- **Gladden the Mind**: Replace negative thoughts with positive ones. Use mantras or songs like *"I got along without her before I met her, I can get along without her now."*
+  
+- **Avoid Over-Investigating Painful Memories**: When painful thoughts arise, acknowledge them as painful, but don’t dwell on them. Instead, divert your attention to something wholesome.
+  
+- **Practice Diversion and Avoidance**: Use **diversion techniques** to steer your mind away from negative thoughts. For example, think about something joyful or engage in a positive activity.
+  
+- **Take Time for Seclusion**: Spend time in nature or in a quiet place to break the cycle of negative thinking and focus on the present moment.
+  
+- **Recognize the Illusion of Ownership**: Understand that you never truly "own" or control another person. Let go of the idea that you can possess someone or something.
+  
+- **Use Metaphors to Reframe Thoughts**: Apply metaphors like **sour grapes** or **piling hamburgers** to reframe your perspective on loss and dissatisfaction.
+  
+- **Focus on the Present Moment**: Practice mindfulness to stay present and avoid getting lost in memories of the past or worries about the future.
+  
+- **Cultivate Wholesome Thoughts**: Actively cultivate thoughts that bring joy and relief, such as *"I’m glad I don’t have to deal with that anymore."*
+  
+- **Practice Non-Attachment**: Understand that both good and bad experiences are impermanent. Let go of attachment to outcomes and focus on what you have in the present.
+
+### Key Metaphors and Analogies
+
+1. **Sour Grapes**: This metaphor illustrates how we often devalue what we can’t have. Dhammarato encourages listeners to accept that they don’t need what they’ve lost and to focus on the relief of not having to deal with it anymore.
+
+2. **Dog Turd Analogy**: Dhammarato compares investigating painful memories to picking up and dissecting a dog turd. The point is that you don’t need to analyze painful thoughts; just recognize they are painful and let them go.
+
+3. **Piling Hamburgers**: This analogy suggests that you can "smother" negative thoughts by piling wholesome, positive thoughts on top of them. The goal is to replace negative thinking with positive thinking.
+
+4. **Driving Around the Tree**: Dhammarato uses the metaphor of driving around a tree to illustrate the importance of avoiding negative thoughts. Just as you would avoid hitting a tree while driving, you should steer your mind away from painful memories.
+
+5. **Losing the Motorcycle and Hot Water Heater**: Dhammarato shares his own experience of losing material possessions to show that even good memories can lead to dissatisfaction because they are impermanent. He emphasizes that he is better off without them.
+
+
+### Clarifications on Metaphors
+
+- **Dog Turd Analogy**: This metaphor might seem crude, but its purpose is to emphasize that there’s no need to dwell on or analyze painful thoughts. Just as you wouldn’t pick up and examine a dog turd, you shouldn’t linger on negative memories. The key is to recognize them as painful and move on.
+
+- **Sour Grapes**: This metaphor is often misunderstood as a form of rationalization or denial. However, Dhammarato uses it to encourage acceptance and letting go. The idea is not to devalue what you’ve lost out of spite, but to accept that you don’t need it and focus on the present.
+
+By applying these teachings, listeners can learn to manage dissatisfaction, let go of the past, and cultivate a more joyful and present-focused mindset.
+
+
+
+### References
+
+[^1]: [Teresa Brewer "Gonna Get Along Without Ya Now" on The Ed Sullivan Show](https://www.youtube.com/watch?v=oSd_XUJ4q68&ab_channel=TheEdSullivanShow)
 
 
 
