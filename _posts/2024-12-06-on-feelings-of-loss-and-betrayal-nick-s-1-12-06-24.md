@@ -387,14 +387,6 @@ The talk is practical and direct, offering specific techniques for managing emot
 By applying these teachings, listeners can learn to manage dissatisfaction, let go of the past, and cultivate a more joyful and present-focused mindset.
 
 
-
-### References
-
-[^1]: [Teresa Brewer "Gonna Get Along Without Ya Now" on The Ed Sullivan Show](https://www.youtube.com/watch?v=oSd_XUJ4q68&ab_channel=TheEdSullivanShow)
-
-
-
-
 ### Participate in one of our Live Sanghas (Free of Charge)
 
 <p>►The Sangha US, Friday 7 PM PDT <a href="https://join.skype.com/uyYzUwJ3e3TO">Join Skype Call</a>.</p>
@@ -404,3 +396,9 @@ By applying these teachings, listeners can learn to manage dissatisfaction, let 
 <p>►The Sangha UK, Wednesday 7PM BST <a href="https://join.skype.com/w6nFHnra6vdh">Join Skype Call</a>.</p>
 
 There is nothing like direct transmission of the teachings in a one-to-one or one-to-group (Sangha) format from a skilled teacher. We encourage you to participate in our weekly Sanghas.
+
+
+### References
+
+[^1]: [Teresa Brewer "Gonna Get Along Without Ya Now" on The Ed Sullivan Show](https://www.youtube.com/watch?v=oSd_XUJ4q68&ab_channel=TheEdSullivanShow)
+
