@@ -7,7 +7,7 @@ tags: [transcripts, wholesome thoughts, unwholesome thoughts, present moment, vi
 image: "https://i.ytimg.com/vi/L3S5K0SnShE/maxresdefault.jpg"
 description: "Transcript of June 08, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-06-08
-featured: true
+featured: false
 hidden: false
 toc: true
 ---

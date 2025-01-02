@@ -7,7 +7,7 @@ tags: [transcripts, present moment, now is still here, making decisions, parenta
 image: "https://i.ytimg.com/vi/Xg7QrzqTghQ/maxresdefault.jpg"
 description: "Transcript of June 06, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-06-06
-featured: true
+featured: false
 hidden: false
 toc: true
 ---

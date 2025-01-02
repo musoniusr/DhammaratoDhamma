@@ -7,7 +7,7 @@ tags: [transcripts]
 image: "https://i.ytimg.com/vi/clpgdBOwb7k/maxresdefault.jpg"
 description: "Transcript of July 24, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-07-24
-featured: true
+featured: false
 hidden: false
 toc: true
 ---

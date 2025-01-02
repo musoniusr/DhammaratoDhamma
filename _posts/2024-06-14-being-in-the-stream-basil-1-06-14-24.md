@@ -7,7 +7,7 @@ tags: [transcripts, dukkha dukkha-nirodha, victim mentality, stream entry, Buddh
 image: "https://i.ytimg.com/vi/_ov0Gpl9jbo/maxresdefault.jpg"
 description: "Transcript of June 14, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-06-14
-featured: true
+featured: false
 hidden: false
 toc: true
 ---

@@ -7,7 +7,7 @@ tags: [transcripts, mediatation practice, Buddhist practice for Westerners, mind
 image: "https://i.ytimg.com/vi/5P6MfNMqmn0/maxresdefault.jpg"
 description: "Transcript of August 14, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-08-14
-featured: true
+featured: false
 hidden: false
 toc: true
 ---

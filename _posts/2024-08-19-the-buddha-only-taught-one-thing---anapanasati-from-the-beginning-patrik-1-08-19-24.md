@@ -7,7 +7,7 @@ tags: [transcripts, Satisfaction, Anapanasati, Mindfulness, Investigation, Eight
 image: "https://i.ytimg.com/vi/sTN1IQepr2M/maxresdefault.jpg"
 description: "Transcript of August 19, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-08-19
-featured: true
+featured: false
 hidden: false
 toc: true
 ---

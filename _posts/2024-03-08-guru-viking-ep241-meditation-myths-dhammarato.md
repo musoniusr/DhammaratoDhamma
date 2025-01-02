@@ -7,7 +7,7 @@ tags: [transcripts, interviews, meditation, practice, sangha, western-buddhism, 
 image: "https://i.ytimg.com/vi/IZDCJkFOiUo/maxresdefault.jpg"
 description: "Transcript of March 08, 2024 Guru Viking Interview with Dhammarato"
 dateoftalk: 2024-03-08
-featured: true
+featured: false
 hidden: false
 toc: true
 ---

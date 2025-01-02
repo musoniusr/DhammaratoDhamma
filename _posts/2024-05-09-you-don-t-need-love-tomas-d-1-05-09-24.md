@@ -7,7 +7,7 @@ tags: [transcripts, perfectionism, self-criticism, already good enough, suicidal
 image: "https://i.ytimg.com/vi/2koz1UDfzAU/maxresdefault.jpg"
 description: "Transcript of May 09, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-05-09
-featured: true
+featured: false
 hidden: false
 toc: true
 ---

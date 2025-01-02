@@ -8,7 +8,7 @@ tags: [transcripts, middle path, dukkha, dissatisfaction, victim mentality, mind
 image: "https://i.ytimg.com/vi/tgtToKIj9XA/maxresdefault.jpg"
 description: "Transcript of May 11, 2024 Dhamma Talk with Dhammarato and Friends"
 dateoftalk: 2024-05-11
-featured: true
+featured: false
 hidden: false
 toc: true
 ---
